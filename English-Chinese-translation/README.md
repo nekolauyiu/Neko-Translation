@@ -1,6 +1,6 @@
 # English-Chinese-translation
 
-英译中文章。
+英译中文章
 
 * [A-second-thought](https://github.com/nekoly/translate/blob/master/English-Chinese-translation/A-second-thought.md)
 * [Awry-in-the-air](https://github.com/nekoly/translate/blob/master/English-Chinese-translation/Awry-in-the-air.md)
