@@ -1,5 +1,5 @@
 History in the making?
-正在制造历史？
+创造历史？
 
 The pros and cons of a summit between Donald Trump and Kim Jong Un
 特朗普与金正恩会晤的正反面
