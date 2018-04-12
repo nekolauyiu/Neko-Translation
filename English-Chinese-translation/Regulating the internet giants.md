@@ -17,11 +17,11 @@ May 6th 2017
 
 A NEW commodity spawns a lucrative, fast-growing industry, prompting antitrust regulators to step in to restrain those who control its flow. A century ago, the resource in question was oil. Now similar concerns are being raised by the giants that deal in data, the oil of the digital era. These titans—Alphabet (Google’s parent company), Amazon, Apple, Facebook and Microsoft—look unstoppable. They are the five most valuable listed firms in the world. Their profits are surging: they collectively racked up over $25bn in net profit in the first quarter of 2017. Amazon captures half of all dollars spent online in America. Google and Facebook accounted for almost all the revenue growth in digital advertising in America last year. 
 
-一种新的商品产生了一个利润丰厚的，快速增长的工业，促使反垄断机构介入，去限制那些控制其业务流动的人。一个世纪之前，讨论的资源是石油。现在数据交易的巨头们引起了类似的担忧，数字时代的石油。这些巨头公司——阿尔法贝塔公司（谷歌的母公司），亚马逊，苹果，脸书以及微软）——看上去势不可挡。他们是世界上最有价值的五家上市公司。他们的利润在增长: 他们在2017年第一季度的净利润总计就超过了250亿美元。亚马逊占据了美国一半的线上交易额。谷歌和脸书几乎占据了美国去年数字广告的全部增长。
+一种新的商品产生了一个利润丰厚的，快速增长的工业，促使反垄断机构介入，去限制那些控制其业务流动的人。一个世纪之前，讨论的资源是石油。现在数据交易的巨头们引起了类似的担忧，数字时代的石油。这些巨头公司——阿尔法贝塔公司（谷歌的母公司），亚马逊，苹果，脸书以及微软）——看上去势不可挡。他们是世界上最有价值的五家上市公司。他们的利润在增长: 他们在2017年第一季度的净利润总计就超过了250亿美元。亚马逊占据了美国一半的线上交易额。谷歌和脸书几乎占据了美国去年数字广告的收入增长。
 
 Such dominance has prompted calls for the tech giants to be broken up, as Standard Oil was in the early 20th century. This newspaper has argued against such drastic action in the past. Size alone is not a crime. The giants’ success has benefited consumers. Few want to live without Google’s search engine, Amazon’s one-day delivery or Facebook’s newsfeed. Nor do these firms raise the alarm when standard antitrust tests are applied. Far from gouging consumers, many of their services are free (users pay, in effect, by handing over yet more data). Take account of offline rivals, and their market shares look less worrying. And the emergence of upstarts like Snapchat suggests that new entrants can still make waves.
 
-这种优势促使人们呼吁将技术巨头公司进行拆分，正如美孚石油公司在上世纪早期那样。本刊曾反对在过去进行如此激烈的行为。公司规模本身并不是犯罪。巨头公司的成功使得消费者受惠。只有少部分人能够在没有谷歌的搜索引擎，亚马逊的一天到达送货以及脸书的新闻输送下生活。当采用标准反托拉斯法测试时，也没有对这些巨头们敲响警钟。他们的许多服务是免费的，而不是欺诈消费者（实际上用户通过支付交出他们数据）。考虑到线下的竞争对手，他们的市场份额似乎不那么糟糕。像Snapchat这样的互联网新贵的崛起，表明新的市场进入者也能呼风唤雨。
+这种优势促使人们呼吁将技术巨头公司进行拆分，正如美孚石油公司在上世纪早期那样。本刊曾反对在过去进行如此激烈的行为。公司规模本身并不是犯罪。巨头公司的成功使得消费者受惠。几乎没有人能够在没有谷歌的搜索引擎，亚马逊的一天到达送货以及脸书的新闻输送下生活。当采用标准反托拉斯法测试时，也没有对这些巨头们敲响警钟。他们的许多服务是免费的，而不是欺诈消费者（实际上用户是通过他们的数据来支付）。考虑到线下的竞争对手，他们的市场份额似乎不那么糟糕。像Snapchat这样的互联网新贵的崛起，表明新的市场进入者也能呼风唤雨。
 
 
 But there is cause for concern. Internet companies’ control of data gives them enormous power. Old ways of thinking about competition, devised in the era of oil, look outdated in what has come to be called the “data economy” (see Briefing). A new approach is needed.
