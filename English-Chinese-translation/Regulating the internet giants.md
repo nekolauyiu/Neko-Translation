@@ -1,9 +1,15 @@
 Regulating the internet giants.
+
 规范互联网巨头
+
 The world’s most valuable resource is no longer oil, but data
+
 世界上最有价值的资源不再是石油，而是数据
+
 The data economy demands a new approach to antitrust rules
+
 数据经济需要一种新反托拉斯法
+
 
  
 edition | Leaders
