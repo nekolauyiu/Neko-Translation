@@ -1,7 +1,7 @@
 
 Pollution
 Awryin the sky
- 空中之错
+中国上空的五十度灰
  
 ATNANYAWO elementary school in Hebei province, near Beijing, the temperature in early December fell below freezing, both outside and in. The teachers took to instructing the six-year-old children in the playground. At least outside it was sunny. The classrooms were unusable because the local government had dismantled the coal-fired boilers for environmental reasons, but not yet installed a replacement heating system. There have been several such incidents this winter in
 northern China. In Linfen, in neighbouring Shanxi province, villagers say their coal-fired heater shave been taken away but the pipes linking them to the gas system have not arrived. A new slogan recently appeared on walls in the town: “If you burn coal, we’ll see you in the detention centre.”
