@@ -11,7 +11,7 @@ By Ninad Khisti & William Betz
 
 In a distributed payment ecosystem, it is critical to accurately measure and track a transaction’s end to end state and contents to ensure consistency throughout the payment cycle. Without robust tracking, data leakage and errors can occur, resulting in either lost revenue or increased costs for all parties in the payment cycle, including the consumers, merchants, gateways, and acquirers.
 
-在分布式生态支付系统中，对于准确测量，跟踪全程交易状态以及在整个支付周期中确保内容的一致性上，至关重要。如果没有可靠的跟踪，数据泄漏和出现错误，将会导致交易各方收益减少或增加成本，包括消费者，商家，网关和 收购方。
+在分布式生态支付系统中，对于准确测量，跟踪全程交易状态以及在整个支付周期中确保内容的一致性上，至关重要。如果没有可靠的跟踪，数据泄漏和出现错误，将会导致交易各方收益减少或增加成本，包括消费者，商家，网关和收购方。
 
 Transactional integrity is hard to measure precisely in a distributed payment system. With multiple systems and entities involved in any given transaction, tracking the state of a payment can be tedious and hard to obtain in a timely fashion.
 在分布式交易系统中，精确测量对于交易完整性来说是不易的。在任何给定的交易中，涉及到多系统和实体的参与，跟踪支付状态可能是繁琐和难以得到即时反馈的。
