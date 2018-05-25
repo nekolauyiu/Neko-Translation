@@ -1,4 +1,6 @@
-Developing countries could get sick before they get rich. Policy can help
+Developing countries could get sick before they get rich. 
+Policy can help
+
 发展中国家在变得富有之前国民健康受损。
 政策有助解决问题。
 
