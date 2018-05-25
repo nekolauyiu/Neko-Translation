@@ -69,7 +69,8 @@ The city of Berkeley in California recognises that taxes alone are not enough to
 在加州的柏克利市承认，单靠税收并不足以控制肥胖。城市所征收的糖税过去用于支持儿童营养和社区健康项目。这有助于强调教育和健康意识的重要性。
 
 There is also promise in broader-reaching initiatives. Urban design holds significant power to reshape lifestyle patterns and public health. Improving the attractiveness of public space, the “walkability” of neighbourhoods and the quality of cycling infrastructure can draw residents out of their cars and living rooms.
-在宽广的倡议中也有承诺。城市规划有着重塑生活模式和公共健康的巨大力量。改善公共空间对人们的吸引力，邻里间的“可步行性”以及自行车基础设施的质量都可以把居民从他们的汽车和起居室中吸引出来。
+
+在广泛的倡议中也有承诺。城市规划有着重塑生活模式和公共健康的巨大力量。改善公共空间对人们的吸引力，邻里间的“可步行性”以及自行车基础设施的质量都可以把居民从他们的汽车和起居室中吸引出来。
 
 A recent study of urban neighbourhoods in Shanghai and Hangzhou found that middle-income residents living in less walkable neighbourhoods had significantly higher Body Mass Indices than both richer and poorer residents who lived in walkable neighbourhoods in urban China.
 
