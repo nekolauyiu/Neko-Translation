@@ -11,6 +11,7 @@ Andreea Papuc
 •	意大利政局不稳影响欧元，各方寻求资产避险方式
 
 •	Oil retreats further, with West Texas crude at six-week lows
+
 •	随着西德州原油六周内持续低位，油价进一步下跌
 
 •	
