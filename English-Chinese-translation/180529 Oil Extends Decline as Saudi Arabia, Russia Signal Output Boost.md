@@ -7,7 +7,7 @@ May 28, 2018, 8:47 PM EDT
 
 Goldman keeps bullish outlook on potential supply disruptions
 
-高曼对潜在石油减产持乐观态度
+高盛对潜在石油减产持乐观态度
 
 WTI falls near $67 after biggest loss in 11 months on Friday
 
