@@ -21,7 +21,7 @@ Ten-year Treasury yields fell, taking the dollar down against the yen, after Ita
 
 Stocks declined, with benchmarks heading lower in Japan, South Korea and Hong Kong. Italy’s bonds and stocks tumbled overnight, and the euro weakened, with the country poised for fresh elections following the failure to set up a government. Ten-year Treasury yields fell below 2.90 percent for the first time this month, and U.S. equity futures slipped.
 
-随着日本，南韩以及香港的基准指数下跌拖累亚洲股市下挫。意大利债券和股票一夜暴跌，随着该国重组政府失败后准备新一轮选举，欧元走低。十年期美国国债收益率跌至本月首次新低2.90，美国股指期货下滑。
+随着日本，南韩以及香港的基准指数下跌拖累亚洲股市受挫。意大利债券和股票一夜暴跌，随着该国重组政府失败后准备新一轮选举，欧元走低。十年期美国国债收益率跌至本月首次新低2.90，美国股指期货下滑。
 
 Investors have started the week with geopolitics to the fore. U.S. negotiations with North Korea have proved unpredictable, and political turmoil in Italy and -- to a lesser extent -- Spain have refreshed memories of the euro zone’s woes of the past decade. Pro- and anti-European forces are at loggerheads in Italy where another election is expected as early as September after parties have failed to form a government since a March poll.
 
