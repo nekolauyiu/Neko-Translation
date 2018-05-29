@@ -6,15 +6,14 @@ By
 Andreea Papuc
 2018年5月29日 上午6:27 [GMT+8]Updated on 2018年5月29日 上午10:01 [GMT+8]
 
-•	Italian political troubles hit the euro, spur risk-off mood
+Italian political troubles hit the euro, spur risk-off mood
 
-•	意大利政局不稳影响欧元，各方寻求资产避险方式
+意大利政局不稳影响欧元，各方寻求资产避险方式
 
-•	Oil retreats further, with West Texas crude at six-week lows
+Oil retreats further, with West Texas crude at six-week lows
 
-•	随着西德州原油六周内持续低位，油价进一步下跌
+随着西德州原油六周内持续低位，油价进一步下跌
 
-•	
 Ten-year Treasury yields fell, taking the dollar down against the yen, after Italy’s political impasse triggered a risk-off mood in holiday-hit markets. Oil prices retreated further, sending West Texas crude to its lowest in six weeks.
 
 意大利的政治僵局在假日市场引发了资产避险情绪后，十年期美国国债收益率下跌，导致美元对日元走低。石油价格进一步回落，将西德州原油价格降至六周来最低点。
