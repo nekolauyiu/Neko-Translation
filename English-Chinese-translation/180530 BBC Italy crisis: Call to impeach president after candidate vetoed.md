@@ -1,6 +1,6 @@
 Italy crisis: Call to impeach president after candidate vetoed
  
-意大利政治危机：否决候选人后，民众呼吁弹劾总统
+意大利政治危机：否决候选人后，呼吁弹劾总统
  
 Italy is mired in fresh political turmoil, with the president facing impeachment calls after he vetoed a choice for finance minister.
  
