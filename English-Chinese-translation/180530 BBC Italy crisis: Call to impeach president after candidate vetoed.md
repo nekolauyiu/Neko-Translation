@@ -99,7 +99,7 @@ If the vote is in favour, the country's constitutional court then decides whethe
 
 "Why don't we just say that in this country it's pointless that we vote, as the ratings agencies, financial lobbies decide the governments?" he asked in a video on Facebook.
 
-"我们为什么不能说在这个国家投票是没有意义的，由于评级机构，金融游说影响了政府"，他在面书视频采访时问道。
+"我们为什么不能说这个国家投票是没有意义的，由于评级机构，金融游说影响了政府"，他在脸书视频采访时问道。
 
 League leader Matteo Salvini called for fresh elections.
 
