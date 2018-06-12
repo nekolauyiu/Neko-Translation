@@ -30,4 +30,4 @@ The purpose of attacks on critical infrastructure in the near future would proba
 
 There are no internationally acknowledged security requirements to protect nuclear weapons systems from digital assaults. That may have to change in 2018.
 
-目前并没有一个国际公认的安全需求保护核武器系统不受数字攻击。这种情况在201 8年可能不得不发生改变。
+目前并没有一个国际公认的安全需求保护核武器系统不受数字攻击。这种情况在2018年可能不得不发生改变。
