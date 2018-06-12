@@ -1,5 +1,5 @@
 Hacking gets physical
-黑客袭击造成物理损失
+黑客攻击造成物理损失
 
 Brace yourself for the next wave of cybercrime
  为下一波网络犯罪作好准备
