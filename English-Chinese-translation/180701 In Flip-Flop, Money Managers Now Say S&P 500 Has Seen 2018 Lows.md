@@ -1,7 +1,7 @@
 
 In Flip-Flop, Money Managers Now Say S&P 500 Has Seen 2018 Lows
 
-相反，基金经理现在认为标普500指数已经到达2018年低位。
+相反，基金经理现在认为标普500指数已经跌到2018年低位。
 
 By 
 Lu Wang
