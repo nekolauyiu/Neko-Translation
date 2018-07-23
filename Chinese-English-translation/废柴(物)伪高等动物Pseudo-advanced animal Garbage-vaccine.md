@@ -1,4 +1,5 @@
 Pseudo-advanced animal Garbage 
+
 废柴(物)伪高等动物
  
 A Chinese movie name “Dying to Survivor” sparked a bunch of comments in June,2018.
