@@ -17,6 +17,7 @@ Much of the netizens rose up on the social media;
 And yet, i did not forward and comment as much as the word "vaccine" pinged around the country;
 
 It's obvious that all comes from the lack of universal suffrage.
+
  
 2018年7月，中国一部电影，”我不是药神”(Dying to surviver)引起了大量的网络评论。
  
