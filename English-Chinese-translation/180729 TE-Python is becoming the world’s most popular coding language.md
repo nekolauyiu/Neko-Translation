@@ -6,7 +6,7 @@ Python正成为世界上最流行的编码语言
 
 But its rivals are unlikely to disappear
 
-但它的竞争不太可能消失
+但它的竞争者不太可能消失
 
 Graphic detail
 Jul 26th 2018
