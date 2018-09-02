@@ -1,3 +1,3 @@
-# Translate
+# Translation
 
 Traslate by neko.
