@@ -52,11 +52,11 @@ Huong’s story is longer. She was kept at her traffickers’ house and threaten
 
 The man to whom she was sold into marriage was in his early 20s. He was from a wealthy family, which had paid 90,000 yuan for her. Her husband explained that he had not really wanted to get married, but that his parents were keen. They had told him that an ethnic-minority bride would be more obedient than someone from the ethnic-Han majority. Such claims are commonly made by matchmakers. One Chinese mail-order marriage site says Vietnamese women are cheap, obedient and unlikely to run away: they are “so gentle and loving they will make you melt”.
 
-把她卖给那个男人也就20岁出头。他来自于一个富裕的家庭，他为此付了90,000元人民币。他的丈夫告诉她，他并不想结婚，只是他父母的要求。父母告诉他，一个少数民族的妻子比汉族的妻子更加的温顺。中介通常都是这样声称的。
+把她卖给那个男人也就20岁出头。他来自于一个富裕的家庭，他为此付了90,000元人民币。他的丈夫告诉她，他并不想结婚，只是他父母的要求。父母告诉他，一个少数民族的妻子比汉族的妻子更加的温顺。中介通常都是这么说。
 
 The greatest demand for foreign wives is in the countryside, particularly among men who are poor or disabled, says Jiang Quanbao of Xi’an Jiaotong University. In rural areas not only is the sex ratio an impediment to finding a bride, so too is the migration of women to the cities in search of work and higher-status males. Impoverished villages sometimes end up with dozens of foreign wives, as word spreads of their availability.
 
-西安交通大学的江全宝（音译）说，在农村有着对外国新娘最大的需要，特别是那些贫穷而有有残疾的单身男性。在农村不仅是性别比例造成寻找妻子的障碍，而且在城市中迁徙的女性也在寻找职业和条件好的男性。一条贫穷的山村有时会有十几个外国妻子，她们的好处被传播开来。
+西安交通大学的江全宝（音译）说，在农村有着对外国新娘最大的需要，特别是那些贫穷而有有残疾的单身男性。在农村不仅是性别比例造成寻找妻子的障碍，而且在城市中迁徙的女性也在寻找职业和条件好的男性。一条贫穷的山村有时会有十几个外国妻子，她们带来的好处被传开了。
 
 Villagers often have sympathy for the buyers—they may even help to prevent trafficked women from fleeing. Escape is not at all simple for women without money of their own and with limited Chinese-language skills. North Koreans who contact the authorities risk being repatriated and then sent to concentration camps. That makes them particularly vulnerable to traffickers. Amid rising tensions on the Korean peninsula caused by North Korea’s nuclear tests, police in nearby Chinese provinces are becoming more watchful for unauthorised migrants from across the border, including North Korean women who have been sold into marriage.
 
