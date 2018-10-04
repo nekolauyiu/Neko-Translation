@@ -53,10 +53,18 @@ If great ideas can bubble up in more places, that has to be welcome. There are s
 
 Shadows of the colossi
 
+巨人的影子
+
 The problem is that the wider playing-field for innovation is also being levelled down. One issue is the dominance of the tech giants. Startups, particularly those in the consumer-internet business, increasingly struggle to attract capital in the shadow of Alphabet, Apple, Facebook et al. In 2017 the number of first financing rounds in America was down by around 22% from 2012. Alphabet and Facebook pay their employees so generously that startups can struggle to attract talent (the median salary at Facebook is $240,000). When the chances of startup success are even less certain and the payoffs not so very different from a steady job at one of the giants, dynamism suffers—and not just in the Valley. It is a similar story in China, where Alibaba, Baidu and Tencent are responsible for close to half of all domestic venture-capital investment, giving the giants a big say in the future of potential rivals.
+
+问题是广泛的创新竞技场的级别也在下降。一个原因是技术巨头的优势。新创公司，尤其是那些在消费类业务中的新创公司，越来越难以吸引到像Alphabet、苹果、脸书以及其它公司的资金。在2017年美国第一轮融资数量与2012年相比下降了22%。Alphabet和脸书向员工慷慨地支付薪酬，以至新创公司难以吸引到人材（脸书的收入中位数达到24万美元）。当初创公司成机的机会还不太确定的时候，在互联网巨头得到稳定工作的回报与之并没有太多区别，创造力就会受到伤害——情况并不单单在硅谷发生。相同的故事发生在中国，阿里巴巴、百度和腾讯包揽了国内接近一半的风险投资，让这些巨头在未来的竞争对手中掌握了很大的发言权。
 
 The second way in which innovation is being levelled down is by increasingly unfriendly policies in the West. Rising anti-immigrant sentiment and tighter visa regimes of the sort introduced by President Donald Trump have economy-wide effects: foreign entrepreneurs create around 25% of new companies in America. Silicon Valley first bloomed, in large part, because of government largesse. But state spending on public universities throughout America and Europe has fallen since the financial crisis of 2007-08. Funding for basic research is inadequate—America’s federal-government spending on R&amp;D was 0.6% of GDP in 2015, a third of what it was in 1964—and heading in the wrong direction.
 
+第二个创新能力下降的原因是在西方日益不友善的政治氛围。反移民情绪的抬头以及由特朗普总统出台的更严格的签证制度对经济产生了影响：在美国，外国企业创立了约25%的新公司。硅谷的首次发展，很大程度上，是因为政府的慷慨。但是美国和欧洲从2007-2008年金融危机后，在公立大学上的开支已经在下降。基础学科研究经费不足——2015年，美国联邦政府在研究与开发项目中的开支仅占GDP的0.6%，只是1964年三分之一——并且在错误的方向上行走 。
+
 If Silicon Valley’s relative decline heralded the rise of a global web of thriving, rival tech hubs, that would be worth celebrating. Unfortunately, the Valley’s peak looks more like a warning that innovation everywhere is becoming harder.
+
+假如硅谷的衰落预示了全球蓬勃发展的网络的兴起的话，竞争对手的技术中心值得庆贺。不幸的是，硅谷的成功貌似更像一个警告，各地的创新都变得越来越难。
 
 
