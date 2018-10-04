@@ -33,14 +33,23 @@ Its combination of engineering expertise, thriving business networks, deep pools
 这里结合了工程专业知识、繁荣的商业网络、大量的资金、名校以及冒险精神使得硅谷在别的地方难以复制，尽管有过很多的尝试。作为世界优秀的创新之都，对于硅谷而言没有什么竞争对手。但是可以看到硅谷的影响力正在下跌。假如这是其它地方更好的创新之地的表现的话，令人鼓舞。然而事实并非如此。
 
 Silicon Plateau
+硅高原
 
 First, the evidence that something is changing. Last year more Americans left the county of San Francisco than arrived. According to a recent survey, 46% of respondents say they plan to leave the Bay Area in the next few years, up from 34% in 2016. So many startups are branching out into new places that the trend has a name, “Off Silicon Valleying”. Peter Thiel, perhaps the Valley’s most high-profile venture capitalist, is among those upping sticks. Those who stay have broader horizons: in 2013 Silicon Valley investors put half their money into startups outside the Bay Area; now it is closer to two-thirds.
 
+首先，事实表明有些情况发生了变化。去年，离开的人比到三蕃市的人还多。根据最新的调查，从2016年的34%上升到46%的调查对象表示，将计划在未来离开湾区。许多新创公司正在去新地方拓展业务，新地方称之为“离开硅谷”。彼特·泰尔——也许是硅谷知名度最高的风险资金——也是其中迁徙者之一。那些留下来的人具有更广阔的视野：在2013年硅谷的投资者们将其一半的资金投在硅谷以外的新创公司身上；现在这个数字接近三分之二。
+
 The reasons for this shift are manifold, but chief among them is the sheer expense of the Valley. The cost of living is among the highest in the world. One founder reckons young startups pay at least four times more to operate in the Bay Area than in most other American cities. New technologies, from quantum computing to synthetic biology, offer lower margins than internet services, making it more important for startups in these emerging fields to husband their cash. All this is before taking into account the nastier features of Bay Area life: clogged traffic, discarded syringes and shocking inequality.
+
+改变的原因是多方面的，但是主要的原因是硅谷的费用。生活成本是世界最高的。一名创始人估算，一家新创公司至少支付比美国大部分城市多四倍的费用来运营在硅谷的公司。新科技公司，从量子计算到合成生物学，提供比互联网服务更低的利润率，让这些新兴领域的初创公司更注重节约现金。所有这一切都考虑到旧金山湾区生活的糟糕之处以外：交通堵塞、废弃的针管以及触目惊心的不平等。
 
 Other cities are rising in relative importance as a result. The Kauffman Foundation, a non-profit group that tracks entrepreneurship, now ranks the Miami-Fort Lauderdale area first for startup activity in America, based on the density of startups and new entrepreneurs. Mr Thiel is moving to Los Angeles, which has a vibrant tech scene. Phoenix and Pittsburgh have become hubs for autonomous vehicles; New York for media startups; London for fintech; Shenzhen for hardware. None of these places can match the Valley on its own; between them, they point to a world in which innovation is more distributed.
 
+其它城市的重要性也在上升。考夫曼基金会，是一个追踪创业公司的非盈利机构组织，基于新创公司以及新创业者的密度，现在在迈阿-劳德尔代堡地区的新创公司活动中排名 第一。泰尔先生搬到了洛杉机，在那里有活跃的科技项目。凤凰城和匹兹堡已经成为自动驾驶汽车的中心；纽约则是媒体新创公司的基地；伦敦则是金融科技城；深圳是硬件之都。它们之中没有一个地方是能够和硅谷媲美的；在它们之中可以看到，创新在全球更具分散性。
+
 If great ideas can bubble up in more places, that has to be welcome. There are some reasons to think the playing-field for innovation is indeed being levelled up. Capital is becoming more widely available to bright sparks everywhere: tech investors increasingly trawl the world, not just California, for hot ideas. There is less reason than ever for a single region to be the epicentre of technology. Thanks to the tools that the Valley’s own firms have produced, from smartphones to video calls to messaging apps, teams can work effectively from different offices and places. A more even distribution of wealth may be one result, greater diversity of thought another. The Valley does many things remarkably well, but it comes dangerously close to being a monoculture of white male nerds. Companies founded by women received just 2% of the funding doled out by venture capitalists last year.
+
+假如好的想法能在更多地方涌现出来，那应该不错。有一些观点认为创新的竞技场正在升级。资金正在为全球其它地方提供更广泛的资助，不仅仅在加州，不仅仅为热门的创意点子。一个地区已经不太成为全球的技术中心了。感谢那些硅谷的公司发明的工具，从智能手机到视频通话到即时通App,团队们能够从不同的办公室和位置进行高效的工作。财富更均衡分布也许是一个结果，思维的多样化也许是另一个结果。硅谷很多事情都做得很好，但是却危险地与白人男子技术狂的单一性相靠近。去年，女性创始人的公司只获得2%的风险投资。
 
 Shadows of the colossi
 
