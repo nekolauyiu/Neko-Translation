@@ -30,6 +30,8 @@ The Valley is not just a place. It is also an idea. Ever since Bill Hewlett and 
 
 Its combination of engineering expertise, thriving business networks, deep pools of capital, strong universities and a risk-taking culture have made the Valley impossible to clone, despite many attempts to do so. There is no credible rival for its position as the world’s pre-eminent innovation hub. But there are signs that the Valley’s influence is peaking (see Briefing). If that were simply a symptom of much greater innovation elsewhere, it would be cause for cheer. The truth is unhappier.
 
+这里结合了工程专业知识、繁荣的商业网络、大量的资金、名校以及冒险精神使得硅谷在别的地方难以复制，尽管有过很多的尝试。作为世界优秀的创新之都，对于硅谷而言没有什么竞争对手。但是可以看到硅谷的影响力正在下跌。假如这是其它地方更好的创新之地的表现的话，令人鼓舞。然而事实并非如此。
+
 Silicon Plateau
 
 First, the evidence that something is changing. Last year more Americans left the county of San Francisco than arrived. According to a recent survey, 46% of respondents say they plan to leave the Bay Area in the next few years, up from 34% in 2016. So many startups are branching out into new places that the trend has a name, “Off Silicon Valleying”. Peter Thiel, perhaps the Valley’s most high-profile venture capitalist, is among those upping sticks. Those who stay have broader horizons: in 2013 Silicon Valley investors put half their money into startups outside the Bay Area; now it is closer to two-thirds.
