@@ -21,12 +21,12 @@ Aug 30th 2018
 
 “LIKE Florence in the Renaissance.” That is a common description of what it is like to live in Silicon Valley. America’s technology capital has an outsize influence on the world’s economy, stockmarkets and culture. This small portion of land running from San Jose to San Francisco is home to three of the world’s five most valuable companies. Giants such as Apple, Facebook, Google and Netflix all claim Silicon Valley as their birthplace and home, as do trailblazers such as Airbnb, Tesla and Uber. The Bay Area has the 19th-largest economy in the world, ranking above Switzerland and Saudi Arabia.
 
-"就像文化复兴进的佛罗伦萨。”这是对生活在硅谷日常的普通写照。美国的技术资本已经对世界经济、股票市场以及文化产生了巨大的影响。从圣何塞到旧金山这一小片土地拥有世界上五分之三最有价值的公司。诸如苹果、脸书、谷歌以及Netflix都认为硅谷是其创始地，其它像爱彼家、特斯拉以及优步也同样这样认为。这座山湾是世界上第十九大经济体，排名在瑞士和沙特之上。
+"就像文化复兴的佛罗伦萨。”这是对生活在硅谷日常的普通写照。美国的技术资本已经对世界经济、股票市场以及文化产生了巨大的影响。从圣何塞到旧金山这一小片土地拥有世界上五分之三最有价值的公司。诸如苹果、脸书、谷歌以及Netflix都认为硅谷是其创始地，其它像爱彼迎、特斯拉以及优步也同样这样认为。这座山湾是世界上第十九大经济体，排名在瑞士和沙特之上。
 
 “
 The Valley is not just a place. It is also an idea. Ever since Bill Hewlett and David Packard set up in a garage nearly 80 years ago, it has been a byword for innovation and ingenuity. It has been at the centre of several cycles of Schumpeterian destruction and regeneration, in silicon chips, personal computers, software and internet services. Some of its inventions have been ludicrous: internet-connected teapots, or an app that sold people coins to use at laundromats. But others are world-beaters: microprocessor chips, databases and smartphones all trace their lineage to the Valley.
 
-“这座山谷不仅仅只是一个位置。也是创意之地。自从比尔·休利特和大卫·帕卡特在80年前建了一个修车厂以来，在硅芯片、个人电脑、软件以及互联网服务中，这里已经成为了创新和独特的代名词。 其中有些发明特别有意思：连接互联网的茶壶又或者卖硬币给人们在自助洗衣店使用的App.但其它的大佬 们如微处理芯片、数据库以及智能手机，也能在这里追溯到它们的身影。
+“这座山谷不仅仅只是一个位置。也是创意之地。自从比尔·休利特和大卫·帕卡特在80年前建了一个修车厂以来，在硅芯片、个人电脑、软件以及互联网服务中，这里已经成为了创新和独特的代名词。 其中有些发明特别有意思：连接互联网的茶壶又或者卖硬币给人们在自助洗衣店使用的App.但其它的大佬们如微处理芯片、数据库以及智能手机，也能在这里追溯到它们的身影。
 
 Its combination of engineering expertise, thriving business networks, deep pools of capital, strong universities and a risk-taking culture have made the Valley impossible to clone, despite many attempts to do so. There is no credible rival for its position as the world’s pre-eminent innovation hub. But there are signs that the Valley’s influence is peaking (see Briefing). If that were simply a symptom of much greater innovation elsewhere, it would be cause for cheer. The truth is unhappier.
 
