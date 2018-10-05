@@ -21,7 +21,7 @@ Aug 30th 2018
 
 “LIKE Florence in the Renaissance.” That is a common description of what it is like to live in Silicon Valley. America’s technology capital has an outsize influence on the world’s economy, stockmarkets and culture. This small portion of land running from San Jose to San Francisco is home to three of the world’s five most valuable companies. Giants such as Apple, Facebook, Google and Netflix all claim Silicon Valley as their birthplace and home, as do trailblazers such as Airbnb, Tesla and Uber. The Bay Area has the 19th-largest economy in the world, ranking above Switzerland and Saudi Arabia.
 
-"就像文化复兴的佛罗伦萨。”这是对生活在硅谷日常的普通写照。美国的技术资本已经对世界经济、股票市场以及文化产生了巨大的影响。从圣何塞到旧金山这一小片土地拥有世界上五分之三最有价值的公司。诸如苹果、脸书、谷歌以及Netflix都认为硅谷是其创始地，其它像爱彼迎、特斯拉以及优步也同样这样认为。这座山湾是世界上第十九大经济体，排名在瑞士和沙特之上。
+"就像文艺复兴的佛罗伦萨。”这是对生活在硅谷日常的普通写照。美国的技术资本已经对世界经济、股票市场以及文化产生了巨大的影响。从圣何塞到旧金山这一小片土地拥有世界上五分之三最有价值的公司。诸如苹果、脸书、谷歌以及Netflix都认为硅谷是其创始地，其它像爱彼迎、特斯拉以及优步也同样这样认为。这座山湾是世界上第十九大经济体，排名在瑞士和沙特之上。
 
 “
 The Valley is not just a place. It is also an idea. Ever since Bill Hewlett and David Packard set up in a garage nearly 80 years ago, it has been a byword for innovation and ingenuity. It has been at the centre of several cycles of Schumpeterian destruction and regeneration, in silicon chips, personal computers, software and internet services. Some of its inventions have been ludicrous: internet-connected teapots, or an app that sold people coins to use at laundromats. But others are world-beaters: microprocessor chips, databases and smartphones all trace their lineage to the Valley.
