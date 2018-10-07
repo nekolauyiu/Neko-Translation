@@ -5,8 +5,9 @@ REMARKS
 Remarks by Vice President Pence on the Administration’s Policy Toward China
 
 副总统彭斯就美国政府对华政策发表讲话
- FOREIGN POLICY
- 
+
+FOREIGN POLICY
+
  外交政策
 
  Issued on: October 4, 2018
@@ -15,6 +16,7 @@ Washington, D.C.
 11:07 A.M. EDT
 
 THE VICE PRESIDENT: Thank you, Ken, for that kind introduction. To the Members of the Board of Trustees, to Dr. Michael Pillsbury, to our distinguished guests, and to all of you who, true to your mission in this place, “think about the future in unconventional ways” –- it is an honor to be back at the Hudson Institute.
+
 副总统：谢谢肯恩的介绍。致董事会成员，致迈克儿皮尔斯博格博士，致尊敬的嘉宾以及所有忠于使命的人，“用非传统的方法去思考未来”——很荣幸能回到哈得德研究所。
 
 
