@@ -1,10 +1,20 @@
 Geopolitics and investment
 
+地缘政治与投资
+
 China has designs on Europe. Here is how Europe should respond
 
+中国已经开始谋划欧洲
+
+欧洲应如何应对
+
 As Chinese investment pours into the European Union, the Europeans are beginning to worry
+
+当中国投资涌入欧盟时，欧洲人开始感到担忧
+
 EUROPE has caught China’s eye. Chinese investments there have soared, to nearly €36bn ($40bn) in 2016—almost double the previous years’ total. Chinese FDI fell in 2017, but the share spent in Europe rose from a fifth to a quarter. For the most part, this money is welcome. Europe’s trading relationship with China has made both sides richer.
 
+欧洲吸引了中国的注意。2016年中国投资在那里的投资飙升将近360亿欧元（400亿美元）——几乎是前一年总数的两倍。中国在2017年对外直接投资开始下降，但在欧洲的投资份额从五分之一上升到了四分之一。最重要的原因，投资很受欢迎。欧洲与中国的贸易关系使得双方都有所收获。
 
 However, China is also using its financial muscle to buy political influence (see Briefing). The Czech president, Milos Zeman, wants his country to be China’s “unsinkable aircraft-carrier” in Europe. Last year Greece stopped the European Union from criticising China’s human-rights record at a UN forum. Hungary and Greece prevented the EU from backing a court ruling against China’s expansive territorial claims in the South China Sea. Faced with such behaviour, it is only prudent for Europeans to be nervous.
 
