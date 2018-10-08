@@ -50,6 +50,8 @@ But such openness also makes them vulnerable. Hence, governments should vet inve
 
 Europeans could do more to substantiate their talk of “reciprocity”, or the mantra that the EU and China should treat each other as each wishes to be treated. They could, for example, introduce new instruments to make it clearer who is buying stakes in firms and thus whether they are doing so fairly. They should also increase funding for impartial China research. Transparency should be demanded from political parties, universities, think-tanks and lobbyists. Sometimes Chinese cash buys unsubtle happy talk. More often, it leads to self-censorship and punch-pulling from even prestigious academies.
 
+欧洲人能够做更多事情来验证关于“互惠”的说法，或者欧盟与中国应该像双方希望得到好的对待一样来对待彼此。比如，他们能够引入新的方式——谁购买了公司股份以及是否他们作这一切是否公司平——使之更清晰。他们应该为对中国进行公正的研究增加资金。不同的政党、大学、智囊团以及游客们应该对与中国合作的一切提出透明度的要求。更多时候，这甚至会导致有名望的学院进行自我审查以及对相关行为的抨击。
+
 And Europe should aim to speak as one. None of its states alone can face down China but, acting together, they could do so for decades to come. The EU could, for example, use qualified-majority voting (QMV) rather than unanimous votes on some subjects sensitive to China, such as human rights. This would not work for everything—most EU nations would balk at giving Brussels a veto over how they deploy their military forces. But QMV would make it harder for China to paralyse the EU by picking off one small member at a time. The EU could also co-ordinate investment-screening processes by member states. And it could take better care of those southern and eastern countries particularly vulnerable to China’s influence and provide alternative sources of investment for the projects they deem important. A little more intra-European solidarity would go a long way.
 
 
