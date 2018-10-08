@@ -46,6 +46,7 @@ Europe thus needs to take a path that avoids the extremes of naivety and hostili
 
 But such openness also makes them vulnerable. Hence, governments should vet investments case by case. Montenegro should not have allowed its debts to China to become so perilously vast. Hungary and Poland should have looked harder at certain Chinese infrastructure projects that offer poor value for money or were never properly completed.
 
+但是这种开放性也容易受到伤害。因此，政府应该就具体的投资作具体分析。黑山共和国不应该允许中国成为其债权国而变得危机四伏。匈牙利和波兰应该在中国的基础设施项目中更加谨慎，这些项目花了不值当的钱或者根本没有完成过项目。
 
 Europeans could do more to substantiate their talk of “reciprocity”, or the mantra that the EU and China should treat each other as each wishes to be treated. They could, for example, introduce new instruments to make it clearer who is buying stakes in firms and thus whether they are doing so fairly. They should also increase funding for impartial China research. Transparency should be demanded from political parties, universities, think-tanks and lobbyists. Sometimes Chinese cash buys unsubtle happy talk. More often, it leads to self-censorship and punch-pulling from even prestigious academies.
 
