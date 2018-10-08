@@ -50,16 +50,23 @@ But such openness also makes them vulnerable. Hence, governments should vet inve
 
 Europeans could do more to substantiate their talk of “reciprocity”, or the mantra that the EU and China should treat each other as each wishes to be treated. They could, for example, introduce new instruments to make it clearer who is buying stakes in firms and thus whether they are doing so fairly. They should also increase funding for impartial China research. Transparency should be demanded from political parties, universities, think-tanks and lobbyists. Sometimes Chinese cash buys unsubtle happy talk. More often, it leads to self-censorship and punch-pulling from even prestigious academies.
 
-欧洲人能够做更多事情来验证关于“互惠”的说法，或者欧盟与中国应该像双方希望得到好的对待一样来对待彼此。比如，他们能够引入新的方式——谁购买了公司股份以及是否他们作这一切是否公司平——使之更清晰。他们应该为对中国进行公正的研究增加资金。不同的政党、大学、智囊团以及游客们应该对与中国合作的一切提出透明度的要求。更多时候，这甚至会导致有名望的学院进行自我审查以及对相关行为的抨击。
+欧洲人能够做更多事情来验证关于“互惠”的说法，或者欧盟与中国应该像各自希望得到的待遇一样来对待彼此。比如，他们能够引入新的方式——谁购买了公司股份以及是否他们作这一切是否公司平——使之更清晰。他们应该为对中国进行公正的研究增加资金。不同的政党、大学、智囊团以及游客们应该对与中国合作的一切提出透明度的要求。更多时候，这甚至会导致有名望的学院进行自我审查以及对相关行为的抨击。
 
 And Europe should aim to speak as one. None of its states alone can face down China but, acting together, they could do so for decades to come. The EU could, for example, use qualified-majority voting (QMV) rather than unanimous votes on some subjects sensitive to China, such as human rights. This would not work for everything—most EU nations would balk at giving Brussels a veto over how they deploy their military forces. But QMV would make it harder for China to paralyse the EU by picking off one small member at a time. The EU could also co-ordinate investment-screening processes by member states. And it could take better care of those southern and eastern countries particularly vulnerable to China’s influence and provide alternative sources of investment for the projects they deem important. A little more intra-European solidarity would go a long way.
 
+另外，欧洲人应该旨在团结一致。没有其中任何一个国家能独自应对中国。这不会对任何事情起作用——大部分欧盟国家都回避给予布鲁塞尔布置其军事力量的否决权。但是QMV(意：特定多数表决制，译者注)将使中国更难以利用一两个成员国的否决权来麻痹欧盟。欧盟也能通过成员国协调投资审查流程。以及，这能够更好地顾及到南欧与东欧的那些国家，那些国家特别容易受到中国的影响，中国为它们认为是重要的项目提供投资资源。多一点欧洲内部的团结对欧洲大有裨益。
 
 What money can’t buy
+
+有什么是金钱无法购买的
 
 
 America has a role to play, too. Ideally the Trump administration would stop treating Europeans as free-riders on American power who deserve a good kicking. On trade, especially, the EU is a powerful potential ally in getting China to abide by global norms. America should also work more closely with European governments to set up common standards of transparency, graft-busting and the prevention of influence-peddling—which would make it harder for China to impose its own rules on small countries. At a time when standards for IT and artificial intelligence risk splitting into a Chinese camp and an American one, Europe can help find a middle path.
 
+美国也有自己的角色要饰演。理想的情况是，特朗普政府不会再认为欧洲人搭上了美国权力的顺风车，而他们理应受到严厉的惩罚。特别在贸易上，欧盟是强有力的潜在同盟让中国遵守全球规则。美国也应该与欧洲政府更密切地合作，以建立一个透明的、打击贪腐以及预防以权谋私的共同标准，这一切都使中国难以用其自身的规则去影响一些小国家。每次当信息技术和人工智能的标准面临分裂为中国阵营以及美国阵营的风险时，欧洲总能平衡其中。
+
+
 
 As China rises, the benefits for the world of an independent, open and free Europe will only increase. Conversely, a Europe weakened and divided by the world’s most powerful authoritarian regime would exacerbate problems far beyond the EU’s borders. Europe must not let that happen.
 
+随着中国崛起，一个独立、开放并且自由的欧洲对世界的好处只会多，不会少。相反地，一个世界上最强大的独裁政权削弱以及分裂欧洲将会恶化这些问题，而这些问题将会超出欧盟的边境。欧洲不允许这一切的发生。
