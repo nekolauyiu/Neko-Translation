@@ -26,21 +26,33 @@ For more than a half a century, this Institute has dedicated itself to “advanc
 
 
 And today, speaking of leadership, allow me to begin by bringing greetings from a great champion of American leadership at home and abroad –- I bring greetings from the 45th President of the United States of America, President Donald Trump. (Applause.)
+
+而今天，当我们谈及领导力，请允许我带来一位——无论在国内还是国外——美国领导力的捍卫者，美利坚合众国第45届总统，唐纳·特朗普总统——的问候。
+
 From early in this administration, President Trump has made our relationship with China and President Xi a priority. On April 6th of last year, President Trump welcomed President Xi to Mar-a-Lago. On November 8th of last year, President Trump traveled to Beijing, where China’s leader welcomed him warmly.
 
+从执政初期开始，特朗普总统已经优先考虑中国和习主席与我们的关系。在去年的4月16日，特朗普总统邀请习主席到海湖庄园。在去年的11月8日，特朗普总统访问中国，受到了中国的领导人的热烈欢迎。
 
 Over the course of the past two years, our President has forged a strong personal relationship with the President of the People’s Republic of China, and they’ve worked closely on issues of common interest, most importantly the denuclearization of the Korean Peninsula.
+
+在过去的两年里，我们的总统已经与中国人民共和国主席缔造了强有力的个人关系， 他们在共同利益上并肩作战，最重要的是使朝鲜半岛无核化。
 
 
 But I come before you today because the American people deserve to know that, as we speak, Beijing is employing a whole-of-government approach, using political, economic, and military tools, as well as propaganda, to advance its influence and benefit its interests in the United States.
 
+但我今天来到这里是因为美国人民应该知道这一切，当我们在这里发言的时候，北京正动用全政府的力量，使用政治、经济以及军事工与政治宣传，去提高其影响力以及有利于其在美国的利益。
 
 China is also applying this power in more proactive ways than ever before, to exert influence and interfere in the domestic policy and politics of this country.
 
+中国也比以往更积极地运作这一力量，去施加影响力以及干预这个内政与政治。
 
 Under President Trump’s leadership, the United States has taken decisive action to respond to China with American action, applying the principles and the policies long advocated in these halls.
 
+在特朗普总统的领导力下，美国采取果断的行动去回应中国在美国的行为，贯彻这个国家里长期倡导的原则和政策。
+
 In our National Security Strategy that the President Trump released last December, he described a new era of “great power competition.” Foreign nations have begun to, as we wrote, “reassert their influence regionally and globally,” and they are “contesting [America’s] geopolitical advantages and trying [in essence] to change the international order in their favor.”
+
+特朗普总统在去年12月发布国家安全战略中，他提出了“大国竞争”的新时代的概念。外国已经开始了，就如我们所描述的，“重申其在区域和全球的影响力”，他们也正在“争论（美国的）地缘政治优势以及试图(实质上)改变有利于他们的国际规则。"
 
 In this strategy, President Trump made clear that the United States of America has adopted a new approach to China. We seek a relationship grounded in fairness, reciprocity, and respect for sovereignty, and we have taken strong and swift action to achieve that goal.
 
