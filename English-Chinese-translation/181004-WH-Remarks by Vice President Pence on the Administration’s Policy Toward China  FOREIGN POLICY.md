@@ -22,6 +22,8 @@ THE VICE PRESIDENT: Thank you, Ken, for that kind introduction. To the Members o
 
 For more than a half a century, this Institute has dedicated itself to “advancing global security, prosperity, and freedom.” And while Hudson’s hometowns have changed over the years, one thing has been constant: You have always advanced that vital truth, that American leadership lights the way.
 
+半个世纪以来，这个研究所致力于“提高全球安全、繁荣以及自由。”哈德森的故乡在这些年来都发生了变化，有一样东西始终没变：你总是提到始终如一的真理，那就是美国的领导力充当了开路先峰。
+
 
 And today, speaking of leadership, allow me to begin by bringing greetings from a great champion of American leadership at home and abroad –- I bring greetings from the 45th President of the United States of America, President Donald Trump. (Applause.)
 From early in this administration, President Trump has made our relationship with China and President Xi a priority. On April 6th of last year, President Trump welcomed President Xi to Mar-a-Lago. On November 8th of last year, President Trump traveled to Beijing, where China’s leader welcomed him warmly.
