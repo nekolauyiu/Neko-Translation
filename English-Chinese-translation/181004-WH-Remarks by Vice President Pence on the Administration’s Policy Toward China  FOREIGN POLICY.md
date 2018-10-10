@@ -60,7 +60,7 @@ In this strategy, President Trump made clear that the United States of America h
 
 As the President said last year on his visit to China, in his words, “we have an opportunity to strengthen the relationship between our two countries and improve the lives of our citizens.” Our vision of the future is built on the best parts of our past, when America and China reached out to one another in a spirit of openness and friendship.
 
-正如总统在去年访问中国时所说的，“我们有一个机会加强两国的关系以及改善我们国家人民的生活。”我们对未来的憧憬是建立在我们过去交往的最好的一部分里，当美国和中国以开放和友谊的精神相接触的时候。
+正如总统在去年访问中国时所说的，“我们有一个机会加强两国的关系以及改善我们国家人民的生活。”我们对未来的憧憬是建立在我们过去交往的最好的一部分中，当美国和中国以开放和友谊的精神相接触的时候。
 
 When our young nation went searching in the wake of the Revolutionary War for new markets for our exports, the Chinese people welcomed American traders laden with ginseng and fur.
 
