@@ -68,6 +68,8 @@ When our young nation went searching in the wake of the Revolutionary War for ne
 
 When China suffered through indignities and exploitations during her so-called “Century of Humiliation,” America refused to join in, and advocated the “Open Door” policy, so that we could have freer trade with China, and preserve their sovereignty.
 
+当中国在称为“百年屈辱”中遭受侮辱和剥削的时候，美国人并不有踩上一脚，并提供“门户开放”政策，使得我们与中国有了自由贸易并且保护他们的主权。
+
 When American missionaries brought the good news to China’s shores, they were moved by the rich culture of an ancient and vibrant people. And not only did they spread their faith, but those same missionaries founded some of China’s first and finest universities.
 When the Second World War arose, we stood together as allies in the fight against imperialism. And in that war’s aftermath, America ensured that China became a charter member of the United Nations, and a great shaper of the post-war world.
 But soon after it took power in 1949, the Chinese Communist Party began to pursue authoritarian expansionism. It is remarkable to think that only five years after our nations had fought together, we fought each other in the mountains and valleys of the Korean Peninsula. My own father saw combat on that frontier of freedom.
