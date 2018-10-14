@@ -74,11 +74,17 @@ When American missionaries brought the good news to China’s shores, they were 
 When the Second World War arose, we stood together as allies in the fight against imperialism. And in that war’s aftermath, America ensured that China became a charter member of the United Nations, and a great shaper of the post-war world.
 But soon after it took power in 1949, the Chinese Communist Party began to pursue authoritarian expansionism. It is remarkable to think that only five years after our nations had fought together, we fought each other in the mountains and valleys of the Korean Peninsula. My own father saw combat on that frontier of freedom.
 
+当美国的传教士把好消息带到中国的海岸线上时，他们被古老和充满活力的人民的丰厚文化所感动。不仅增添了他们的信心，也正是这些传教士在中国建立了最初和最好的大学。当第二次世界大战发生时，我们作为盟友并肩作战反击战国主义。在战后，美国承认中国成为联合国的一个会员国，并且是战后世界伟大的塑造者。但中国在1949年执政后，中国共产党开始追求独裁扩张政策。值得留意的是，在我们共同并肩作战的仅五年后，我们在朝鲜半岛的山间开始互相作战。我自己的父亲在自由的前线里目睹了战争。
+
 But not even the brutal Korean War could diminish our mutual desire to restore the ties that for so long had bound our peoples together. China’s estrangement from the United States ended in 1972, and, soon after, we re-established diplomatic relations and began to open our economies to one another, and American universities began training a new generation of Chinese engineers, business leaders, scholars, and officials.
+
+但是即使是残酷的朝鲜战争也不能削弱我们的共同的愿望，重新恢复长期以来我们两国人民一直团结一起的纽带。中国与美国的隔阂结束于1972年，不久之后，我们重建了外交关系以及开始向对方开放经济政策，美国大学开始培养新一代中国的工程师、商界领导，学者以及官员。但是即使是残酷的朝鲜战争也不能削弱我们的共同的愿望，重新恢复长期以来我们两国人民一直团结一起的纽带。中国与美国的隔阂结束于1972年，不久之后，我们重建了外交关系以及开始向对方开放经济政策，美国大学开始培养新一代中国的工程师、商界领导，学者以及官员。
 
 After the fall of the Soviet Union, we assumed that a free China was inevitable. Heady with optimism at the turn of the 21st Century, America agreed to give Beijing open access to our economy, and we brought China into the World Trade Organization.
 Previous administrations made this choice in the hope that freedom in China would expand in all of its forms -– not just economically, but politically, with a newfound respect for classical liberal principles, private property, personal liberty, religious freedom — the entire family of human rights. But that hope has gone unfulfilled.
 The dream of freedom remains distant for the Chinese people. And while Beijing still pays lip service to “reform and opening,” Deng Xiaoping’s famous policy now rings hollow.
+
+苏联解体后，我们认为必然会了现一个自由的中国。21世纪初，乐观主义令人兴奋，美国同意让北京加入我们的经济当中，我们让中国进入了世界贸易组织。前几任政府之所以做出这样的决定，是希望中国的自由能以各种形式进行扩张——而不仅仅在经济上，但是政治上，怀着对古典自由主义、私有财务、个人自由主义以及宗教自由的新敬意——在整个人权世界中。但希望落空了。前几任政府之所以做出这样的决定，是希望中国的自由能以各种形式进行扩张——而不仅仅在经济上，但是政治上，怀着对古典自由主义、私有财务、个人自由主义以及宗教自由的新敬意——在整个人权世界中。但希望落空了。中国人民离自由梦还很遥远。当北京依然口头上表示“改革开放”时，邓小平的著名的政策现在听起来显得很空洞。
 
 Over the past 17 years, China’s GDP has grown nine-fold; it’s become the second-largest economy in the world. Much of this success was driven by American investment in China. And the Chinese Communist Party has also used an arsenal of policies inconsistent with free and fair trade, including tariffs, quotas, currency manipulation, forced technology transfer, intellectual property theft, and industrial subsidies that are handed out like candy to foreign investment. These policies have built Beijing’s manufacturing base, at the expense of its competitors -– especially the United States of America.
 
