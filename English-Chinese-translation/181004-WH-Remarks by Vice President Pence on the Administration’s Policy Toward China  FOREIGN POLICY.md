@@ -88,9 +88,15 @@ The dream of freedom remains distant for the Chinese people. And while Beijing s
 
 Over the past 17 years, China’s GDP has grown nine-fold; it’s become the second-largest economy in the world. Much of this success was driven by American investment in China. And the Chinese Communist Party has also used an arsenal of policies inconsistent with free and fair trade, including tariffs, quotas, currency manipulation, forced technology transfer, intellectual property theft, and industrial subsidies that are handed out like candy to foreign investment. These policies have built Beijing’s manufacturing base, at the expense of its competitors -– especially the United States of America.
 
+在过去的17年的当中，中国的GPD增加了九倍；成为了世界第二大经济体。相当一部分的成功源于美国在中国的投资。以及中国共产党使了一系列与自由与公平贸易的不相称的政策，包括关税、配额、货币操纵、强制技术转让、偷窥知识产权以及向外国投资发放像糖果一样的工业补贴。这些政策建立了北京的制造业基地，以损害竞争对手为代价——特别是美国。
+
 China’s actions have contributed to a trade deficit with the United States that last year ran to $375 billion –- nearly half of our global trade deficit. As President Trump said just this week, in his words, “We rebuilt China” over the last 25 years.
 
+中国的行为已经造成了与美国在去年3750亿美元的贸易逆差——几乎是全球贸易逆差的一半。当特朗普总统在这周表示，用他的话说，在过去的25里“我们要重建中国”。
+
 Now, through the “Made in China 2025” plan, the Communist Party has set its sights on controlling 90 percent of the world’s most advanced industries, including robotics, biotechnology, and artificial intelligence. To win the commanding heights of the 21st century economy, Beijing has directed its bureaucrats and businesses to obtain American intellectual property –- the foundation of our economic leadership -– by any means necessary.
+
+现在，通过“2025中国制造”计划，中国共产党的目标是控制世界上90%最先进的工业，包括机器人、生物技术以及人工智能。为了赢得21世纪经济的制高点，北京已经指示其官员和企业获得美国的知识产权——无论如何——那是我们经济领导地位的基础。
 
 Beijing now requires many American businesses to hand over their trade secrets as the cost of doing business in China. It also coordinates and sponsors the acquisition of American firms to gain ownership of their creations. Worst of all, Chinese security agencies have masterminded the wholesale theft of American technology –- including cutting-edge military blueprints. And using that stolen technology, the Chinese Communist Party is turning plowshares into swords on a massive scale.
 
