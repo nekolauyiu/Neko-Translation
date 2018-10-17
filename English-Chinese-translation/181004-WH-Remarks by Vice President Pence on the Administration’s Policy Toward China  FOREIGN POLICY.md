@@ -100,6 +100,8 @@ Now, through the “Made in China 2025” plan, the Communist Party has set its 
 
 Beijing now requires many American businesses to hand over their trade secrets as the cost of doing business in China. It also coordinates and sponsors the acquisition of American firms to gain ownership of their creations. Worst of all, Chinese security agencies have masterminded the wholesale theft of American technology –- including cutting-edge military blueprints. And using that stolen technology, the Chinese Communist Party is turning plowshares into swords on a massive scale.
 
+北京现在要求许多美国商人交出其商业秘密作为在华经商的代价。中国还协调和赞助了美国公司的收购以获得其产品所有权。最糟糕的是，中国安全部门已经策划了大量美国技术的窃取行为——包括尖端军事蓝图。同时使用偷来的技术应用在大规模的战斗中。
+
 China now spends as much on its military as the rest of Asia combined, and Beijing has prioritized capabilities to erode America’s military advantages on land, at sea, in the air, and in space. China wants nothing less than to push the United States of America from the Western Pacific and attempt to prevent us from coming to the aid of our allies. But they will fail.
 
 Beijing is also using its power like never before. Chinese ships routinely patrol around the Senkaku Islands, which are administered by Japan. And while China’s leader stood in the Rose Garden at the White House in 2015 and said that his country had, and I quote, “no intention to militarize” the South China Sea, today, Beijing has deployed advanced anti-ship and anti-air missiles atop an archipelago of military bases constructed on artificial islands.
