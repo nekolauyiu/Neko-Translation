@@ -104,13 +104,22 @@ Beijing now requires many American businesses to hand over their trade secrets a
 
 China now spends as much on its military as the rest of Asia combined, and Beijing has prioritized capabilities to erode America’s military advantages on land, at sea, in the air, and in space. China wants nothing less than to push the United States of America from the Western Pacific and attempt to prevent us from coming to the aid of our allies. But they will fail.
 
+现在中国在军事上的开支相当于亚洲其它国家的总和，以及北京优先考虑消弱美国在陆地上、海上、空中以及在太空的军事优势。中国只想把美国从西太平洋赶走，试图阻止我们能援助我们的盟友。但他们将会失败。
+
 Beijing is also using its power like never before. Chinese ships routinely patrol around the Senkaku Islands, which are administered by Japan. And while China’s leader stood in the Rose Garden at the White House in 2015 and said that his country had, and I quote, “no intention to militarize” the South China Sea, today, Beijing has deployed advanced anti-ship and anti-air missiles atop an archipelago of military bases constructed on artificial islands.
 
+北京也前所未有的使用其实力。中国的船舶经常在尖阁列岛巡航，而那里属日本管制。2015年，当中国的领导人站在白宫的玫瑰园的时候，表示他的国家，我在这里引用他所说的，在南中国海“没有军事化的意图”，而今天，北京已经在人工岛上建造的军事基地上空，部署了高级反舰和防空导弹。
+
 China’s aggression was on display this week, when a Chinese naval vessel came within 45 yards of the USS Decatur as it conducted freedom-of-navigation operations in the South China Sea, forcing our ship to quickly maneuver to avoid collision. Despite such reckless harassment, the United States Navy will continue to fly, sail, and operate wherever international law allows and our national interests demand. We will not be intimidated and we will not stand down. (Applause.)
+中国在这周展现了其侵略行为，当一艘中国海军舰艇在南中国海执行自由航行行动时，距离迪凯特号驱逐舰不足45码，迫使我们的舰艇快速航行以免发生碰撞。尽管受到了鲁莽的骚扰，美国海军将继续飞行、航行以及在国际法允许和国家利益需要的地方行使使命。我们不会被吓倒，也不会退缩。（掌声）
 
 America had hoped that economic liberalization would bring China into a greater partnership with us and with the world. Instead, China has chosen economic aggression, which has in turn emboldened its growing military.
 
+美国曾经希望经济自由化能使中国与美国和全球建立更好的伙伴关系。相反，中国已经选择了经济侵略，这反过来又助长了中国日益壮大的军事力量。
+
 Nor, as we had hoped, has Beijing moved toward greater freedom for its own people. For a time, Beijing inched toward greater liberty and respect for human rights. But in recent years, China has taken a sharp U-turn toward control and oppression of its own people.
+
+也不是我们希望的那样，北京已经为本国人民走向了更大的自由。曾有一段时期，北京逐渐向更大的自由和尊重人权迈进。但是近年来，中国却急转弯，操控和镇压本国人民。
 
 Today, China has built an unparalleled surveillance state, and it’s growing more expansive and intrusive – often with the help of U.S. technology. What they call the “Great Firewall of China” likewise grows higher, drastically restricting the free flow of information to the Chinese people.
 
