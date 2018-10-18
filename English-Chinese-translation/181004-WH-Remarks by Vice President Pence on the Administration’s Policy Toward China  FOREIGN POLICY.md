@@ -123,10 +123,16 @@ Nor, as we had hoped, has Beijing moved toward greater freedom for its own peopl
 
 Today, China has built an unparalleled surveillance state, and it’s growing more expansive and intrusive – often with the help of U.S. technology. What they call the “Great Firewall of China” likewise grows higher, drastically restricting the free flow of information to the Chinese people.
 
+今天，中国已经建立了一个空前的监控式的国家——通常在美国技术的帮助下——它的范围越来越广并且具有侵入性。他们所谓的“中国防火墙”同样也变得更高，极大地限制了中国人民的信息自由。
+
 And by 2020, China’s rulers aim to implement an Orwellian system premised on controlling virtually every facet of human life — the so-called “Social Credit Score.” In the words of that program’s official blueprint, it will “allow the trustworthy to roam everywhere under heaven, while making it hard for the discredited to take a single step.”
+
+在2020年，中国的统治者计划执行一个以控制人类生活的每一个方面为前提的奥威尔系统——称之为“社会信息等级”。用该计划的官方蓝图的话来说，这将“让守信的人行走天下，同时也让那些名誉扫地的人难以出行。”
 
 And when it comes to religious freedom, a new wave of persecution is crashing down on Chinese Christians, Buddhists, and Muslims.
 Last month, Beijing shut down one of China’s largest underground churches. Across the country, authorities are tearing down crosses, burning bibles, and imprisoning believers. And Beijing has now reached a deal with the Vatican that gives the avowedly atheist Communist Party a direct role in appointing Catholic bishops. For China’s Christians, these are desperate times.
+
+上个月，北京关闭了中国最大的一间地下教堂。放眼全国，当局者正拆卸十字架，焚烧圣经以及囚禁信徒。北京现在与梵蒂冈达成协议，给予无神论的共产党任命主教的角色。对于中国的基督徒而言，这是令人绝望的时刻。
 
 Beijing is also cracking down on Buddhism. Over the past decade, more than 150 Tibetan Buddhist monks have lit themselves on fire to protest China’s repression of their beliefs and their culture. And in Xinjiang, the Communist Party has imprisoned as many as one million Muslim Uyghurs in government camps where they endure around-the-clock brainwashing. Survivors of the camps have described their experiences as a deliberate attempt by Beijing to strangle Uyghur culture and stamp out the Muslim faith.
 
