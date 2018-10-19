@@ -136,7 +136,12 @@ Last month, Beijing shut down one of China’s largest underground churches. Acr
 
 Beijing is also cracking down on Buddhism. Over the past decade, more than 150 Tibetan Buddhist monks have lit themselves on fire to protest China’s repression of their beliefs and their culture. And in Xinjiang, the Communist Party has imprisoned as many as one million Muslim Uyghurs in government camps where they endure around-the-clock brainwashing. Survivors of the camps have described their experiences as a deliberate attempt by Beijing to strangle Uyghur culture and stamp out the Muslim faith.
 
+北京也镇压佛教徒。在过去的二十年里，有超过150名西藏佛教徒通过自焚来抗议中国对他们信仰和文化的镇压。在新疆，共产党也
+关禁了一百万维吾尔穆斯林在政府的集中营，在那里他们忍受着不间断的洗脑活动。从那里出来的生还者描述他们的经历就像是一场试验，北京扼杀维吾尔人的文化以及消灭穆斯林信仰。
+
 As history attests though, a country that oppresses its own people rarely stops there. And Beijing also aims to extend its reach across the wider world. As Hudson’s own Dr. Michael Pillsbury has written, “China has opposed the actions and goals of the U.S. government. Indeed, China is building its own relationships with America’s allies and enemies that contradict any peaceful or productive intentions of Beijing.”
+
+
 
 In fact, China uses so-called “debt diplomacy” to expand its influence. Today, that country is offering hundreds of billions of dollars in infrastructure loans to governments from Asia to Africa to Europe and even Latin America. Yet the terms of those loans are opaque at best, and the benefits invariably flow overwhelmingly to Beijing.
 
