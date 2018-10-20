@@ -141,15 +141,25 @@ Beijing is also cracking down on Buddhism. Over the past decade, more than 150 T
 
 As history attests though, a country that oppresses its own people rarely stops there. And Beijing also aims to extend its reach across the wider world. As Hudson’s own Dr. Michael Pillsbury has written, “China has opposed the actions and goals of the U.S. government. Indeed, China is building its own relationships with America’s allies and enemies that contradict any peaceful or productive intentions of Beijing.”
 
-
+但历史证明了一点，一个镇压国民的国家往往停不下来。北京也旨在将其爪牙扩张至全球。正如哈德森的拥有者迈克·斯皮尔伯里写的那样，“中国已经反对美国政府的行动和目标了。确实，中国正在建立其与美国盟友和敌人的关系，这些盟友与敌人都与北京任何和平或富有成效的意图相抵触。”
 
 In fact, China uses so-called “debt diplomacy” to expand its influence. Today, that country is offering hundreds of billions of dollars in infrastructure loans to governments from Asia to Africa to Europe and even Latin America. Yet the terms of those loans are opaque at best, and the benefits invariably flow overwhelmingly to Beijing.
 
+事实上，中国使用所谓的“债务外交”去扩张其影响力。今天，这个正在向从亚洲到欧洲以及拉丁美洲的政府提供上千亿美元基础设施贷款。然而这些贷款的条款都是不透明的，以及收益无一例外总是倾向于北京。
+
 Just ask Sri Lanka, which took on massive debt to let Chinese state companies build a port of questionable commercial value. Two years ago, that country could no longer afford its payments, so Beijing pressured Sri Lanka to deliver the new port directly into Chinese hands. It may soon become a forward military base for China’s growing blue-water navy.
+
+只需问下斯里兰卡，这个国家负债累累只为了让中国公司建了一个
+可疑的具有商业价值的港口。两年后，这个国家不能再提供还款，于是北京向斯里兰卡施压，将这个新港口直接交付给中国人使用。这也许在不久以后，会成为中国正在发展的深海海军的军事基地。
+
 
 Within our own hemisphere, Beijing has extended a lifeline to the corrupt and incompetent Maduro regime in Venezuela that’s been oppressing its own people. They pledged $5 billion in questionable loans to be repaid with oil. China is also that country’s single largest creditor, saddling the Venezuelan people with more than $50 billion in debt, even as their democracy vanishes. Beijing is also impacting some nations’ politics by providing direct support to parties and candidates who promise to accommodate China’s strategic objectives.
 
+在东半球，北京已经向腐败无能的，镇压其国民的马杜罗政权伸出了援助之手。他们承诺用石油来偿还可疑的50亿美元贷款。中国同时也是这个国家的最大债权国，委内瑞拉人民背负着超过500亿美金的债务，甚至在失去民主的时候。北京也在影响一些国家的政治通过提供直接的资助给党派或者候选人，这部分人承诺将会配合中国的战略目标。
+
 And since last year alone, the Chinese Communist Party has convinced three Latin American nations to sever ties with Taipei and recognize Beijing. These actions threaten the stability of the Taiwan Strait, and the United States of America condemns these actions. And while our administration will continue to respect our One China Policy, as reflected in the three joint communiqués and the Taiwan Relations Act, America will always believe that Taiwan’s embrace of democracy shows a better path for all the Chinese people. (Applause.)
+
+
 
 Now these are only a few of the ways that China has sought to advance its strategic interests across the world, with growing intensity and sophistication. Yet previous administrations all but ignored China’s actions. And in many cases, they abetted them. But those days are over.
 
