@@ -159,14 +159,23 @@ Within our own hemisphere, Beijing has extended a lifeline to the corrupt and in
 
 And since last year alone, the Chinese Communist Party has convinced three Latin American nations to sever ties with Taipei and recognize Beijing. These actions threaten the stability of the Taiwan Strait, and the United States of America condemns these actions. And while our administration will continue to respect our One China Policy, as reflected in the three joint communiqués and the Taiwan Relations Act, America will always believe that Taiwan’s embrace of democracy shows a better path for all the Chinese people. (Applause.)
 
+去年开始，中国共产党已经说服三个拉丁美洲国家与台北断交并只承认北京政权。这样的行为会威胁海峡地区的稳定，美国谴责这种行为。虽然我们的政府将依据三个联合公报以及《台湾关系法》，继续尊重一个中国政策，美国会一直相信台湾与民主同在，台湾向中国人民展示了一条更好地通往民主的道路。
 
 
 Now these are only a few of the ways that China has sought to advance its strategic interests across the world, with growing intensity and sophistication. Yet previous administrations all but ignored China’s actions. And in many cases, they abetted them. But those days are over.
 
+现在，这只是中国在全球范围内寻求其战略利益方式的一小部分，随着这些方式的强度和复杂性的不断提高。然而，前几任政府都几乎忽略了中国的行为。在许多情况下，他们起了煽动的作用。但那些日子都过去了。
+
 Under President Trump’s leadership, the United States of America has been defending our interests with renewed American strength.
 We’ve been making the strongest military in the history of the world stronger still. Earlier this year, President Trump signed into law the largest increase in our national defense since the days of Ronald Reagan -– $716 billion to extend the strength of the American military to every domain.
 
+在特朗普的领导下，随着美国力量的监管兴，美国已经开始捍卫自身的利益。我们使世界历史上最强大的军队依然更加的强大。在今年的早些时候，特朗普总统签署一份自罗纳德·里根以来，国防力量规模最大的法案——7160亿美元——使得美国国防力量扩展到各个领域。
+
 We’re modernizing our nuclear arsenal. We’re fielding and developing new cutting-edge fighters and bombers. We’re building a new generation of aircraft carriers and warships. We’re investing as never before in our armed forces. And this includes initiating the process to establish the United States Space Force to ensure our continued dominance in space, and we’ve taken action to authorize increased capability in the cyber world to build deterrence against our adversaries.
+
+我们让自己的核武库现代化。我们正在部署和开发新型尖端战斗机和轰炸机。我们正在建造新一代的航空母舰和军舰。我们对武装力量的投放前所未有。这包括启动建立美国太空力量的进程以继续确保我们在太空的主宰力量，同时，我们已经增加授权去增加网络世界的能力，建立对敌人的威摄。
+
+
 At President Trump’s direction, we’re also implementing tariffs on $250 billion in Chinese goods, with the highest tariffs specifically targeting the advanced industries that Beijing is trying to capture and control. And as the President has also made clear, we will levy even more tariffs, with the possibility of substantially more than doubling that number, unless a fair and reciprocal deal is made. (Applause.)
 
 
