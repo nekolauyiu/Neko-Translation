@@ -198,44 +198,49 @@ In June, Beijing itself circulated a sensitive document, entitled “Propaganda 
 
 To that end, Beijing has mobilized covert actors, front groups, and propaganda outlets to shift Americans’ perception of Chinese policy. As a senior career member of our intelligence community told me just this week, what the Russians are doing pales in comparison to what China is doing across this country. And the American people deserve to know it.
 
+最后，北京开始动员秘密行为者、前线部队以及宣传媒体去改变美国人对中国政策的看法。正如本周我们情报部门的一位资深成员告诉我的那样，俄罗斯的所作所为与中国在美国所做的一切相比，相形见绌。这些美国人民有权利知道。
 
 Senior Chinese officials have also tried to influence business leaders to encourage them to condemn our trade actions, leveraging their desire to maintain their operations in China. In one recent example, China threatened to deny a business license for a major U.S. corporation if they refused to speak out against our administration’s policies.
 
+中国高级官员也试图影响商界领导，鼓励其去谴责我们的贸易行动，利用其欲望去获得中国的生意。在最近的一些案例中，中国威胁对美国一家大公司拒绝颁发营业执照，假如这家美国公司拒绝公开反对我们政府的政策。
 
 And when it comes to influencing the midterms, you need only look at Beijing’s tariffs in response to ours. The tariffs imposed by China to date specifically targeted industries and states that would play an important role in the 2018 election. By one estimate, more than 80 percent of U.S. counties targeted by China voted for President Trump and I in 2016; now China wants to turn these voters against our administration.
 
+当涉及到影响中期选举时，你只要看看北京关于关税问题对我们的回应就知道了。中国对特定工业和州征收的关税将会在2018年的中期选举中起着重要的作用。据估计，被中国定为目标的80%的美国县城的选民和我，在2016年投票给特朗普总统；而现在，中国希望利用这些选民反过来反对我们的政府。
 
 And China is also directly appealing to the American voters. Last week, the Chinese government paid to have a multipage supplement inserted into the Des Moines Register –- the paper of record of the home state of our Ambassador to China, and a pivotal state in 2018 and 2020. The supplement, designed to look like the news articles, cast our trade policies as reckless and harmful to Iowans.
 Fortunately, Americans aren’t buying it. For example, American farmers are standing with this President and are seeing real results from the strong stands that he’s taken, including this week’s U.S.-Mexico-Canada Agreement, where we’ve substantially opened North American markets to U.S. products. The USMCA is a great win for American farmers and American manufacturers. (Applause.)
 
+中国也直接呼吁美国选民。在上周，中国政府出资在《梅因登纪要》中插入多页增刊——这是我国驻中国大使的本国记录文件，是一个在2018年和2020年的关键州。这个增刊，设计得看起来就像是新闻报道一样，把我们的贸易政策看成是对爱荷华州鲁莽和有害的行为。幸运的是，美国人并不买帐。比如，美国农场主与总统站边，看到了他采取的强硬立场所产生的真实成果，包括这周美墨加协定，我们向美国产品充分开放北美市场。USMCA是对美国农场主和美国制造业一次伟大的胜利。
 
-But China’s actions aren’t focused solely on influencing our policies and politics. Beijing is also taking steps to exploit its economic leverage, and the allure of their large marketplace, to advance its influence over American businesses.
+But China’s actions aren’t focused solely on influencing our policies and politics. Beijing is also taking steps to exploit its economic leverage, and the allure of their large marketplace, to advance its influence over American businesses.Beijing now requires American joint ventures that operate in China to establish what they call “party organizations” within their company, giving the Communist Party a voice –- and perhaps a veto -– in hiring and investment decisions.
 
+但中国的行为并不仅仅集中影响我们的政策和政治。北京也在采取措施利用其经济杠杆以及巨大市场的吸引力，通过美国的商人提高其影响力。现在，北京要求美国在中国的合资公司内部建立其称之为“党组织”，让中国共产党听到一种声音——也许是反对的声音——在招聘和投资决策方面。
 
-Beijing now requires American joint ventures that operate in China to establish what they call “party organizations” within their company, giving the Communist Party a voice –- and perhaps a veto -– in hiring and investment decisions.
+Chinese authorities have also threatened U.S. companies that depict Taiwan as a distinct geographic entity, or that stray from Chinese policy on Tibet. Beijing compelled Delta Airlines to publicly apologize for not calling Taiwan a “province of China” on its website. And it pressured Marriott to fire a U.S. employee who merely liked a tweet about Tibet.And Beijing routinely demands that Hollywood portray China in a strictly positive light. It punishes studios and producers that don’t. Beijing’s censors are quick to edit or outlaw movies that criticize China, even in minor ways. For the movie, “World War Z,” they had to cut the script’s mention of a virus because it originated in China. The movie, “Red Dawn” was digitally edited to make the villains North Korean, not Chinese.
 
+中国政府也威胁把美国企业，那些把台湾描述为另一个国家或者西藏问题上偏离中国政策的美国企业。北京迫使达美航空公开道歉，因为不在网站上把台湾称为“中国的一个省”。同时施压给万豪酒店，解雇一名仅仅在西藏的推文上点赞的员工。北京老是要求好莱坞用绝对积极的眼光来描绘中国。否则就会惩罚电影工作室和制作方，如果他们不这么做的话。北京对批评中国电编辑和取缔是迅速的，即使在很小的方面批评中国。一部电影名为“僵尸世界大战“，他们删除了剧本中提到的一种起源于中国的病毒。另一部电影，”赤色黎明”是通过数字剪辑制作的电影，把里面的反派角色变成朝鲜人，而不是中国人。
 
-Chinese authorities have also threatened U.S. companies that depict Taiwan as a distinct geographic entity, or that stray from Chinese policy on Tibet. Beijing compelled Delta Airlines to publicly apologize for not calling Taiwan a “province of China” on its website. And it pressured Marriott to fire a U.S. employee who merely liked a tweet about Tibet.
+But beyond business and entertainment, the Chinese Communist Party is also spending billions of dollars on propaganda outlets in the United States and, frankly, around the world.China Radio International now broadcasts Beijing-friendly programs on over 30 U.S. outlets, many in major American cities. The China Global Television Network reaches more than 75 million Americans, and it gets its marching orders directly from its Communist Party masters. As China’s top leader put it during a visit to the network’s headquarters, and I quote, “The media run by the Party and the government are propaganda fronts and must have the Party as their surname.”
 
+但除了商业和娱乐，中国共产党也正花费数十亿美元在美国的宣传媒体上，坦白说，是全世界。中国国际广播电台现在在美国超过30个媒体上播报亲北京的新闻，许多在美国主要的城市。中国国际电视网的收视遍及7500美国人，它直接从中国共产党那里得到行军令。正如中国最高领导人在访问网络总部那样，我引用一下，“媒体由党领导，政府是宣传前线，媒体必须姓党。”
 
-And Beijing routinely demands that Hollywood portray China in a strictly positive light. It punishes studios and producers that don’t. Beijing’s censors are quick to edit or outlaw movies that criticize China, even in minor ways. For the movie, “World War Z,” they had to cut the script’s mention of a virus because it originated in China. The movie, “Red Dawn” was digitally edited to make the villains North Korean, not Chinese.
-
-
-But beyond business and entertainment, the Chinese Communist Party is also spending billions of dollars on propaganda outlets in the United States and, frankly, around the world.
-
-
-China Radio International now broadcasts Beijing-friendly programs on over 30 U.S. outlets, many in major American cities. The China Global Television Network reaches more than 75 million Americans, and it gets its marching orders directly from its Communist Party masters. As China’s top leader put it during a visit to the network’s headquarters, and I quote, “The media run by the Party and the government are propaganda fronts and must have the Party as their surname.”
 It’s for those reasons and that reality that, last month, the Department of Justice ordered that network to register as a foreign agent.
-The Communist Party has also threatened and detained the Chinese family members of American journalists who pry too deep. And it’s blocked the websites of U.S. media organizations and made it harder for our journalists to get visas. This happened after the New York Times published investigative reports about the wealth of some of China’s leaders.
-But the media isn’t the only place where the Chinese Communist Party seeks to foster a culture of censorship. The same is true across academia.
+The Communist Party has also threatened and detained the Chinese family members of American journalists who pry too deep. And it’s blocked the websites of U.S. media organizations and made it harder for our journalists to get visas. This happened after the New York Times published investigative reports about the wealth of some of China’s leaders.But the media isn’t the only place where the Chinese Communist Party seeks to foster a culture of censorship. The same is true across academia.
+基于这些原因和事实，上个月，司法部下令该网络注册为外国特工。共产党也威胁和扣留深入调查新闻的美国记者的中国家庭成员。屏蔽美国媒体组织的网站，增加我们记者的签证难度。这一切都发生在《纽约时报》发表了一篇关于某些中国领导人的财富的调查报告之后。但是媒体并不是中国共产党唯一试图培养审查文化的地方。学术界也如此。
+
 I mean, look no further than the Chinese Students and Scholars Association, of which there are more than 150 branches across America’s campuses. These groups help organize social events for some of the more than 430,000 Chinese nationals studying in the United States. They also alert Chinese consulates and embassies when Chinese students, and American schools, stray from the Communist Party line.
 At the University of Maryland, a Chinese student recently spoke at her graduation of what she called, and I quote, the “fresh air of free speech” in America. 
 
+我是指，没有比中国学生和学者协会更好的选择了，它们在美国校园里有150多个分支机构。这些团体帮助在美留学的43万中国人组织社交活动。当中国学生以及美国学校偏离共产党的意识形态时，他们也向中国领事馆和大使馆发出警报。在马里兰大学，一名中国学生最近在她的毕业典礼发言，我在这里引用她说的，在美国“言论自由的新闻空气”。
+
 The Communist Party’s official newspaper swiftly chastised her. She became the victim of a firestorm of criticism on China’s tightly-controlled social media, and her family back home was harassed. As for the university itself, its exchange program with China — one of the nation’s most extensive — suddenly turned from a flood to a trickle.
+共产党官方媒体迅速地惩罚了她。她成为了中国严加控制社交媒体的批评风暴的受害人，她的家人在家里也被骚扰。至于大学本身，它与中国的交流项目——是中国最广泛的的交流项目之一——突然之间无人闻津。
 
 
 China exerts academic pressure in other ways, as well. Beijing provides generous funding to universities, think tanks, and scholars, with the understanding that they will avoid ideas that the Communist Party finds dangerous or offensive. China experts in particular know that their visas will be delayed or denied if their research contradicts Beijing’s talking points.
 
+中国也以其它方式向学术界施加压力。北京向大学、智库以及学者提供慷慨的资金，很好理解，他们会避开共产党认为是危险或者是具有冒犯的想法。中国专家特别清楚他们的签证将会得到延期或者他们的研究否定了北京谈话要点的话，就会取消签证。
 
 And even scholars and groups who avoid Chinese funding are targeted by that country, as the Hudson Institute found out firsthand. After you offered to host a speaker Beijing didn’t like, your website suffered a major cyberattack, originating from Shanghai. The Hudson Institute knows better than most that the Chinese Communist Party is trying to undermine academic freedom and the freedom of speech in America today.
 
@@ -244,6 +249,7 @@ These and other actions, taken as a whole, constitute an intensifying effort to 
 But our message to China’s rulers is this: This President will not back down. (Applause.) The American people will not be swayed. And we will continue to stand strong for our security and our economy, even as we hope for improved relations with Beijing.
 Our administration is going to continue to act decisively to protect America’s interests, American jobs, and American security.
 As we rebuild our military, we will continue to assert American interests across the Indo-Pacific.
+
 As we respond to China’s trade practices, we will continue to demand an economic relationship with China that is free, fair, and reciprocal. We will demand that Beijing break down its trade barriers, fulfill its obligations, fully open its economy — just as we have opened ours.
 
 We’ll continue to take action against Beijing until the theft of American intellectual property ends once and for all. And we will continue to stand strong until Beijing stops the predatory practice of forced technology transfer. We will protect the private property interests of American enterprise. (Applause.)
