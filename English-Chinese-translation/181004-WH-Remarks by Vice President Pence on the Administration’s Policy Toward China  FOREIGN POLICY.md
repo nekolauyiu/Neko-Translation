@@ -149,8 +149,7 @@ In fact, China uses so-called “debt diplomacy” to expand its influence. Toda
 
 Just ask Sri Lanka, which took on massive debt to let Chinese state companies build a port of questionable commercial value. Two years ago, that country could no longer afford its payments, so Beijing pressured Sri Lanka to deliver the new port directly into Chinese hands. It may soon become a forward military base for China’s growing blue-water navy.
 
-只需问下斯里兰卡，这个国家负债累累只为了让中国公司建了一个
-可疑的具有商业价值的港口。两年后，这个国家不能再提供还款，于是北京向斯里兰卡施压，将这个新港口直接交付给中国人使用。这也许在不久以后，会成为中国正在发展的深海海军的军事基地。
+只需问下斯里兰卡，这个国家负债累累只为了让中国公司建了一个可疑的具有商业价值的港口。两年后，这个国家不能再提供还款，于是北京向斯里兰卡施压，将这个新港口直接交付给中国人使用。这也许在不久以后，会成为中国正在发展的深海海军的军事基地。
 
 
 Within our own hemisphere, Beijing has extended a lifeline to the corrupt and incompetent Maduro regime in Venezuela that’s been oppressing its own people. They pledged $5 billion in questionable loans to be repaid with oil. China is also that country’s single largest creditor, saddling the Venezuelan people with more than $50 billion in debt, even as their democracy vanishes. Beijing is also impacting some nations’ politics by providing direct support to parties and candidates who promise to accommodate China’s strategic objectives.
@@ -169,7 +168,7 @@ Now these are only a few of the ways that China has sought to advance its strate
 Under President Trump’s leadership, the United States of America has been defending our interests with renewed American strength.
 We’ve been making the strongest military in the history of the world stronger still. Earlier this year, President Trump signed into law the largest increase in our national defense since the days of Ronald Reagan -– $716 billion to extend the strength of the American military to every domain.
 
-在特朗普的领导下，随着美国力量的监管兴，美国已经开始捍卫自身的利益。我们使世界历史上最强大的军队依然更加的强大。在今年的早些时候，特朗普总统签署一份自罗纳德·里根以来，国防力量规模最大的法案——7160亿美元——使得美国国防力量扩展到各个领域。
+在特朗普的领导下，随着美国力量的兴起，美国已经开始捍卫自身的利益。我们使世界历史上最强大的军队依然更加的强大。在今年的早些时候，特朗普总统签署一份自罗纳德·里根以来，国防力量规模最大的法案——7160亿美元——使得美国国防力量扩展到各个领域。
 
 We’re modernizing our nuclear arsenal. We’re fielding and developing new cutting-edge fighters and bombers. We’re building a new generation of aircraft carriers and warships. We’re investing as never before in our armed forces. And this includes initiating the process to establish the United States Space Force to ensure our continued dominance in space, and we’ve taken action to authorize increased capability in the cyber world to build deterrence against our adversaries.
 
@@ -178,24 +177,23 @@ We’re modernizing our nuclear arsenal. We’re fielding and developing new cut
 
 At President Trump’s direction, we’re also implementing tariffs on $250 billion in Chinese goods, with the highest tariffs specifically targeting the advanced industries that Beijing is trying to capture and control. And as the President has also made clear, we will levy even more tariffs, with the possibility of substantially more than doubling that number, unless a fair and reciprocal deal is made. (Applause.)
 
+按照特朗普总统的指示，我们也对中国货品实施2500亿美元的关税，最高的关税特别针对北京试图获得和控制的先进工业。同时，正如特朗普总统明确表示的那样，我们将来征收更多的关税，除非达成公平互惠的交易，否则这一数字有可能翻倍。
 
 These actions — exercises in American strength — have had a major impact. China’s largest stock exchange fell by 25 percent in the first nine months of this year, in large part because our administration has been standing strong against Beijing’s trade practices.
 As President Trump has made clear, we don’t want China’s markets to suffer. In fact, we want them to thrive. But the United States wants Beijing to pursue trade policies that are free, fair, and reciprocal. And we will continue to stand and demand that they do. (Applause.)
 Sadly, China’s rulers, thus far, have refused to take that path. The American people deserve to know: In response to the strong stand that President Trump has taken, Beijing is pursuing a comprehensive and coordinated campaign to undermine support for the President, our agenda, and our nation’s most cherished ideals.actions here at home — some of which we’ve gleaned from intelligence assessments, some of which are publicly available. But all of which are fact.
 
+那些行为——美国武装力量的演习——已经产生了主要的影响。中国最大的证券交易在今年的前九个月所下挫25%，很大一部分原因是因为我们政府坚决反对北京的贸易惯例。也正如特朗普总统明确表示的那样，我们不希望中国的市场遭受损失。事实上，我们希望他们繁荣。但是美国希望北京能实现自由、公平以及互惠的贸易政策。我们将继续支持和要求他们这样做。可悲的是，到目前为止，中国的统治者已经拒绝那样的选择。美国人民有权利知道：作为对强硬立场的回应，特朗普总统已经提出了课程表和我们最珍视的理念——此时，北京正寻求广泛与协同活动以消弱总统的支持。今天，我希望告诉你们，我们在国内知道中国的行为——我们从情报评估中收集了一些信息，其中一些信息是公开的。但所有这些都是事实。
 
-As I said before, as we speak, Beijing is employing a whole-of-government approach to advance its influence and benefit its interests. It’s employing this power in more proactive and coercive ways to interfere in the domestic policies of this country and to interfere in the politics of the United States.
+s I said before, as we speak, Beijing is employing a whole-of-government approach to advance its influence and benefit its interests. It’s employing this power in more proactive and coercive ways to interfere in the domestic policies of this country and to interfere in the politics of the United States.The Chinese Communist Party is rewarding or coercing American businesses, movie studios, universities, think tanks, scholars, journalists, and local, state, and federal officials.And worst of all, China has initiated an unprecedented effort to influence American public opinion, the 2018 elections, and the environment leading into the 2020 presidential elections. To put it bluntly, President Trump’s leadership is working; and China wants a different American President.
 
-
-The Chinese Communist Party is rewarding or coercing American businesses, movie studios, universities, think tanks, scholars, journalists, and local, state, and federal officials.
-
-
-And worst of all, China has initiated an unprecedented effort to influence American public opinion, the 2018 elections, and the environment leading into the 2020 presidential elections. To put it bluntly, President Trump’s leadership is working; and China wants a different American President.
-
+正如我之前所说，当我们说出来，北京正部署一个政府对策去提高其影响力以及使其利益收惠。它以更主动和强制的方式使用权力来干涉这些国家的国内政策以及干涉美国的政治。中国共产党正奖励或强迫美国的商人、电影业、大学、智库、学者、记者以及当地人、州以及联邦政府。最糟糕的是，中国已经开始前所未有的行动去影响美国的民意，2018年的选举以及影响2020年总统选举的环境。坦白地说，特朗普总统的领导力正在发生作用；中国希望看到不一样的总统。
 
 There can be no doubt: China is meddling in America’s democracy. As President Trump said just last week, we have, in his words, “found that China has been attempting to interfere in our upcoming [midterm] election[s].”
 Our intelligence community says that “China is targeting U.S. state and local governments and officials to exploit any divisions between federal and local levels on policy. It’s using wedge issues, like trade tariffs, to advance Beijing’s political influence.”
 In June, Beijing itself circulated a sensitive document, entitled “Propaganda and Censorship Notice.” It laid out its strategy. It stated that China must, in their words, “strike accurately and carefully, splitting apart different domestic groups” in the United States of America.
+
+不容置疑：中国正在干预美国的民主。正如特朗普总统在上周所说的那样，我们已经，“发现，中国正打算干涉我们即将来临的选举。” 我们情报部门表示，“中国正以美国、本地政府和高官为目标，利用联邦政府和本地阶层在政策上的分歧。使用分化对方支持者的议题，像贸易关税，去提高北京的政治影响力。” 在六月，北京透露一份敏感文件，题为“宣传和审查通知”。北京制定了策略。文件规定了中国必须，用他们的话说，“准确而仔细地打击、分裂美国国内不同的团体”。
 
 
 To that end, Beijing has mobilized covert actors, front groups, and propaganda outlets to shift Americans’ perception of Chinese policy. As a senior career member of our intelligence community told me just this week, what the Russians are doing pales in comparison to what China is doing across this country. And the American people deserve to know it.
@@ -231,9 +229,16 @@ It’s for those reasons and that reality that, last month, the Department of Ju
 The Communist Party has also threatened and detained the Chinese family members of American journalists who pry too deep. And it’s blocked the websites of U.S. media organizations and made it harder for our journalists to get visas. This happened after the New York Times published investigative reports about the wealth of some of China’s leaders.
 But the media isn’t the only place where the Chinese Communist Party seeks to foster a culture of censorship. The same is true across academia.
 I mean, look no further than the Chinese Students and Scholars Association, of which there are more than 150 branches across America’s campuses. These groups help organize social events for some of the more than 430,000 Chinese nationals studying in the United States. They also alert Chinese consulates and embassies when Chinese students, and American schools, stray from the Communist Party line.
-At the University of Maryland, a Chinese student recently spoke at her graduation of what she called, and I quote, the “fresh air of free speech” in America. The Communist Party’s official newspaper swiftly chastised her. She became the victim of a firestorm of criticism on China’s tightly-controlled social media, and her family back home was harassed. As for the university itself, its exchange program with China — one of the nation’s most extensive — suddenly turned from a flood to a trickle.
+At the University of Maryland, a Chinese student recently spoke at her graduation of what she called, and I quote, the “fresh air of free speech” in America. 
+
+The Communist Party’s official newspaper swiftly chastised her. She became the victim of a firestorm of criticism on China’s tightly-controlled social media, and her family back home was harassed. As for the university itself, its exchange program with China — one of the nation’s most extensive — suddenly turned from a flood to a trickle.
+
+
 China exerts academic pressure in other ways, as well. Beijing provides generous funding to universities, think tanks, and scholars, with the understanding that they will avoid ideas that the Communist Party finds dangerous or offensive. China experts in particular know that their visas will be delayed or denied if their research contradicts Beijing’s talking points.
+
+
 And even scholars and groups who avoid Chinese funding are targeted by that country, as the Hudson Institute found out firsthand. After you offered to host a speaker Beijing didn’t like, your website suffered a major cyberattack, originating from Shanghai. The Hudson Institute knows better than most that the Chinese Communist Party is trying to undermine academic freedom and the freedom of speech in America today.
+
 These and other actions, taken as a whole, constitute an intensifying effort to shift American public opinion and policy away from the “America First” leadership of President Donald Trump.
 
 But our message to China’s rulers is this: This President will not back down. (Applause.) The American people will not be swayed. And we will continue to stand strong for our security and our economy, even as we hope for improved relations with Beijing.
