@@ -286,15 +286,29 @@ As we gather here, a new consensus is rising across America. More business leade
 It’s also great to see more journalists reporting the truth without fear or favor, digging deep to find where China is interfering in our society, and why. And we hope that American and global news organizations will continue to join this effort on an increasing basis.
 More scholars are also speaking out forcefully and defending academic freedom, and more universities and think tanks are mustering the courage to turn away Beijing’s easy money, recognizing that every dollar comes with a corresponding demand. And we’re confident that their ranks will grow.
 
+很高兴看到有更多的记者抛开恐惧或喜好去报道真相，深挖中国在哪里以及为什么破坏我们的社会。我们希望美国和全球的新闻机构将继续不断地在此基础上努力。更多的学者也积极发言以及捍卫言论自由，更多的大学和智库也正鼓足勇气拒绝北京不义资金，认识到每一块钱都附带着相应的要求。我们相信这样的队伍会越来越壮大。
+
 And across the nation, the American people are growing in vigilance, with a newfound appreciation for our administration’s actions and the President’s leadership to reset America’s economic and strategic relationship with China. Americans stand strong behind a President that’s putting America first.
+
+环顾全国，美国人民的警觉性越来越高，对我们政府的行为以及用总统的领导力去重塑美国的经济以及与中国的策略关系报之以赞赏。美国人民坚定地与把美国第一放在首位的总统站在一起。
 
 And under President Trump’s leadership, I can assure you, America will stay the course. China should know that the American people and their elected officials in both parties are resolved.
 
+在特朗普的领导力之下，我可以向你保证，美国将把这种行动坚持到底。中国应该知道美国人民和他们选举的两党官员的问题已经得到了解决。
+
 As our National Security Strategy states: We should remember that “Competition does not always mean hostility,” nor does it have to. The President has made clear, we want a constructive relationship with Beijing where our prosperity and security grow together, not apart. While Beijing has been moving further away from this vision, China’s rulers can still change course and return to the spirit of reform and opening that characterize the beginning of this relationship decades ago. The American people want nothing more; and the Chinese people deserve nothing less.
+
+正如我们的国家安全策略声明的那样：我们应该牢记“竞争并不一直意味着敌对，”也不是必须的。总统已经明确地表示，我们希望与北京的关系是建设性的，在这样的关系中，我们的繁荣和安全会共同发展，不是各顾各的。尽管北京过去一直在远离这个愿景，中国的统治者依然能改变路线、回到二十多年前中美关系开始时的描述的那种改革开放的理念中去。美国人民别无所求，中国人民理应得到更多。
 
 The great Chinese storyteller Lu Xun often lamented that his country, and he wrote, “has either looked down at foreigners as brutes, or up to them as saints,” but never “as equals.” Today, America is reaching out our hand to China. And we hope that soon, Beijing will reach back with deeds, not words, and with renewed respect for America. But be assured: we will not relent until our relationship with China is grounded in fairness, reciprocity, and respect for our sovereignty. (Applause.)
 
+中国伟大的作家鲁迅常为他的国家所哀伤，他写道，是“或视外邦人为畜类，或视他们为圣徒，”但永远“没有平等地看待过他们。”今天，美国向中国伸出了双手。我们希望在不久之后，北京将以行为回应，而不是语言，以全新的尊重的态度对待美国。但请放心：我们不会再发怜悯之心，直到中国与我们的关系建立在公平、互惠以及对我们主权的尊重之上。
+
 There is an ancient Chinese proverb that reads, “Men see only the present, but heaven sees the future.” As we go forward, let us pursue a future of peace and prosperity with resolve and faith. Faith in President Trump’s leadership and vision, and the relationship that he has forged with China’s president. Faith in the enduring friendship between the American people and the Chinese people. And Faith that heaven sees the future — and by God’s grace, America and China will meet that future together.
 Thank you. God bless you. And God bless the United States of America. (Applause.)
+
+有一句古老的中国谚语，“人见目前, 天见久远。”当我们迈步向前的时候，让我们用决心和信仰去追逐和平和繁荣的未来。对特朗普总统和领导力和愿景充满了信心，以及对与中国主席建立的关系也充满了信心。对美国人民与中国人民的永恒友谊充满了信心。相信天堂能看到未来——通过神的恩典，美国和中国将会一起迎接未来。谢谢，上帝保佑你。天佑美国。
+
+
 END
 11:47 A.M. EDT
