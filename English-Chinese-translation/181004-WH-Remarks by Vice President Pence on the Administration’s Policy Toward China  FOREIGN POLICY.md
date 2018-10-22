@@ -277,7 +277,11 @@ Next month, it will be my privilege to represent the United States in Singapore 
 Closer to home, to protect our interests, we’ve recently strengthened CFIUS — the Committee on Foreign Investment — heightening our scrutiny of Chinese investment in America to protect our national security from Beijing’s predatory actions.
 And when it comes to Beijing’s malign influence and interference in American politics and policy, we will continue to expose it, no matter the form it takes. We will work with leaders at every level of society to defend our national interests and most cherished ideals. The American people will play the decisive role — and, in fact, they already are.
 
+下个月，我很荣幸，将代表美国出席在新加坡和巴布亚新几内亚举行的东盟以及APEC峰会，在那里，我们将推出新的措施和计划，以支持自由开放的亚太地区贸易。谨代表总统，我将会发布一份声明，美国对亚太地区的承诺从未如此坚定过。说到痛处，为了保护我们的利益，我们最近已经加强了CFIUS——一个外国投资委员会——正提高中国在美国投资的审查，为了保护从北京掠夺性的行为中保护我们的国家安全。当涉及到北京的不良影响以及干涉美国的政治和政策，我们将继续曝光，不管以什么样的形式。我们将与社会各阶层的领导一起，去捍卫我们的国家利益和我们最珍惜的理念。美国人民将扮演决定性的角色——事实上，他们已经这么做了。
+
 As we gather here, a new consensus is rising across America. More business leaders are thinking beyond the next quarter, and thinking twice before diving into the Chinese market if it means turning over their intellectual property or abetting Beijing’s oppression. But more must follow suit. For example, Google should immediately end development of the “Dragonfly” app that will strengthen Communist Party censorship and compromise the privacy of Chinese customers. (Applause.)
+
+当我们聚集一堂，美国正达成一个新的共识。更多的商界领袖正在考虑下一个季度之后，他们会重新考虑在进入中国市场后，是否意味着他们要交出知识产权或者与教唆北京的镇压活动。但更多的人会跟着这么做。比如，谷歌应该马上停止“飞龙”应用的开发，那将会加强了共产党的审查制度以及危害中国客户的隐私。
 
 It’s also great to see more journalists reporting the truth without fear or favor, digging deep to find where China is interfering in our society, and why. And we hope that American and global news organizations will continue to join this effort on an increasing basis.
 More scholars are also speaking out forcefully and defending academic freedom, and more universities and think tanks are mustering the courage to turn away Beijing’s easy money, recognizing that every dollar comes with a corresponding demand. And we’re confident that their ranks will grow.
