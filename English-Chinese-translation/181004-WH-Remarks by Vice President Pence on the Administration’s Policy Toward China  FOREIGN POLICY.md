@@ -244,21 +244,35 @@ China exerts academic pressure in other ways, as well. Beijing provides generous
 
 And even scholars and groups who avoid Chinese funding are targeted by that country, as the Hudson Institute found out firsthand. After you offered to host a speaker Beijing didn’t like, your website suffered a major cyberattack, originating from Shanghai. The Hudson Institute knows better than most that the Chinese Communist Party is trying to undermine academic freedom and the freedom of speech in America today.
 
+哈德森研究所首次发现，学者和团体避免由中国已经定为目标的课题。当你发表了北京不喜欢的话题的时候，你的网站就会受到来自于上海的网络攻击。哈德逊研究所比很多人都了解，中国共产党正试图破坏当下美国的学术自由以及言论自由。
+
 These and other actions, taken as a whole, constitute an intensifying effort to shift American public opinion and policy away from the “America First” leadership of President Donald Trump.
+
+这些或者其它的行为，总体而言，构成了一种强势的结果: 改变美国公众意见以及使得政策远离特朗普总统"美国第一"的领导力。
 
 But our message to China’s rulers is this: This President will not back down. (Applause.) The American people will not be swayed. And we will continue to stand strong for our security and our economy, even as we hope for improved relations with Beijing.
 Our administration is going to continue to act decisively to protect America’s interests, American jobs, and American security.
 As we rebuild our military, we will continue to assert American interests across the Indo-Pacific.
 
+但我们向中国统治者传达的信息是: 总统将不会做出让步。美国人将不会受到影响。我们会继续努力捍卫为我们的国家安全和经济。正如我们们希望改善与北京的关系一样。我们的政府会继续坚定地保护美国的利益，美国人的工作以及美国的国家安全。正如我们重建自己的军事力量，我们将继续在亚太地区维护美国人的利益。
+
 As we respond to China’s trade practices, we will continue to demand an economic relationship with China that is free, fair, and reciprocal. We will demand that Beijing break down its trade barriers, fulfill its obligations, fully open its economy — just as we have opened ours.
 
+正如我们回应中国的贸易惯例，我们将继续要求与中国的经济关系是自由的、公平的以及互惠的。我们将要求北京取消贸易壁垒，履行义务，充分开放经济——就像我们的开放经济政策一样。
+
 We’ll continue to take action against Beijing until the theft of American intellectual property ends once and for all. And we will continue to stand strong until Beijing stops the predatory practice of forced technology transfer. We will protect the private property interests of American enterprise. (Applause.)
+
+我们将继续采取行动反击北京直到其结束盗窃美国的知识产权。我们将继续坚定立场直到北京停止强制技术转让的掠夺行为。我们将保护美国企业私有财产的利益。
 
 And to advance our vision of a free and open Indo-Pacific, we’re building new and stronger bonds with nations that share our values across the region, from India to Samoa. Our relationships will flow from a spirit of respect built on partnership, not domination.
 We’re forging new trade deals on a bilateral basis, just as last week President Trump signed an improved trade deal with South Korea. And we will soon begin historic negotiations for a bilateral free-trade deal with Japan. (Applause.)
 
+以及促进我们对自由开放的亚太地区的愿景，我们正建立一个新的，有力的，在该地区与我们分享价值的国家的纽带。我们的关系来自于建立在合作伙伴而不是来自于以独尊的精神自居之上。我们在双边基础上正打造一个新的贸易协议，正如上周特朗普总统签署与南韩的修正贸易协议一样。我们在不久将与日本开始关于双边自由贸易协议的历史性的谈判。
+
 I’m also pleased to report that we’re streamlining international development and finance programs. We’ll be giving foreign nations a just and transparent alternative to China’s debt-trap diplomacy. In fact, this week, President Trump will sign the BUILD Act into law.
 Next month, it will be my privilege to represent the United States in Singapore and Papua New Guinea, at ASEAN and APEC. There, we will unveil new measures and programs to support a free and open Indo-Pacific. And on behalf of the President, I will deliver the message that America’s commitment to the Indo-Pacific has never been stronger. (Applause.)
+
+我也很乐意地告诉大家，我们正在精简国际的发展关系以及金融规划。我们正给予其它国家一个公开透明的选择，以取代中国的债务陷阱外交。事实上，在本周，特朗普总统将签署《建设法案》，将之变成法律。
 
 Closer to home, to protect our interests, we’ve recently strengthened CFIUS — the Committee on Foreign Investment — heightening our scrutiny of Chinese investment in America to protect our national security from Beijing’s predatory actions.
 And when it comes to Beijing’s malign influence and interference in American politics and policy, we will continue to expose it, no matter the form it takes. We will work with leaders at every level of society to defend our national interests and most cherished ideals. The American people will play the decisive role — and, in fact, they already are.
