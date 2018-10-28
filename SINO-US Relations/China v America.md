@@ -1,13 +1,20 @@
 China v America
+
 中美之争
+
 The end of engagement
+
 蜜月期结束
+
 How the world’s two superpowers have become rivals
+
 全球最强两大势力如何成为竞争对手？
+
 version | Leaders
 Oct 18th 2018
 
 FOR THE past quarter century America’s approach to China has been founded on a belief in convergence. Political and economic integration would not just make China wealthier, they would also make it more liberal, pluralistic and democratic. There were crises, such as a face-off in the Taiwan Strait in 1996 or the downing of a spy-plane in 2001. But America cleaved to the conviction that, with the right incentives, China would eventually join the world order as a “responsible stakeholder”.
+
 在过去的25年，美国对中国的态度已经建立在相互融合的信念之上。政治经济一体化并没有中国更富有，他们理应变得更自由、多元以及民主。然而危机时有发生，比如1996年的台海危机以及 2001年一架间谍飞机被击落。
 
 Today convergence is dead. America has come to see China as a strategic rival—a malevolent actor and a rule-breaker (see Briefing). The Trump administration accuses it of interfering in America’s culture and politics, of stealing intellectual property and trading unfairly, and of seeking not just leadership in Asia, but also global dominance. It condemns China’s record on human rights at home and an aggressive expansion abroad. This month Mike Pence, the vice-president, warned that China was engaged in a “whole-of-government” offensive. His speech sounded ominously like an early bugle-call in a new cold war.
