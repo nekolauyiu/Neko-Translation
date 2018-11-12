@@ -17,10 +17,17 @@ FOR THE past quarter century America’s approach to China has been founded on a
 
 在过去的25年，美国对中国的态度已经建立在相互融合的信念之上。政治经济一体化并没有中国更富有，他们理应变得更自由、多元以及民主。然而危机时有发生，比如1996年的台海危机以及 2001年一架间谍飞机被击落。
 
-Today convergence is dead. America has come to see China as a strategic rival—a malevolent actor and a rule-breaker (see Briefing). The Trump administration accuses it of interfering in America’s culture and politics, of stealing intellectual property and trading unfairly, and of seeking not just leadership in Asia, but also global dominance. It condemns China’s record on human rights at home and an aggressive expansion abroad. This month Mike Pence, the vice-president, warned that China was engaged in a “whole-of-government” offensive. His speech sounded ominously like an early bugle-call in a new cold war.
+Today convergence is dead.
 
+而今，妥协已经失效。
+
+America has come to see China as a strategic rival—a malevolent actor and a rule-breaker (see Briefing). The Trump administration accuses it of interfering in America’s culture and politics, of stealing intellectual property and trading unfairly, and of seeking not just leadership in Asia, but also global dominance. It condemns China’s record on human rights at home and an aggressive expansion abroad. This month Mike Pence, the vice-president, warned that China was engaged in a “whole-of-government” offensive. His speech sounded ominously like an early bugle-call in a new cold war.
+
+美国已经看到中国作为一个战略竞争对手——是个狠角色和秩序破坏者。美国政府指控中国干预美国文化和政治，盗窃知识产权，导致不公平贸易以及不仅在亚洲寻求成为领头羊，而且还意图主宰全球。谴责中国在国内的人权状况以及在海外的侵略性扩张。在本月，副总统彭斯警告中国开展了"全政府式"的攻击，他的演讲听起来就像新冷战前恶兆般的号角。
 
 Do not presume that Mr Pence and his boss, President Donald Trump, are alone. Democrats and Republicans are vying to outdo each other in bashing China. Not since the late 1940s has the mood among American businessfolk, diplomats and the armed forces swung so rapidly behind the idea that the United States faces a new ideological and strategic rival.
+
+
 
 At the same time, China is undergoing its own change of heart. Chinese strategists have long suspected that America has secretly wanted to block their country’s rise. That is partly why China sought to minimise confrontation by “hiding its strengths and biding its time”. For many Chinese the financial crisis of 2008 swept aside the need for humility. It set America back while China thrived. President Xi Jinping has since promoted his “Chinese Dream” of a nation that stands tall in the world. Many Chinese see America as a hypocrite that commits all the sins it accuses China of. The time to hide and bide is over.
 
