@@ -44,11 +44,22 @@ Mr Trump and his administration have got three things right. The first is that A
 
 Mr Trump is also right that America needs to reset expectations about Chinese behaviour. Today’s trading system fails to prevent China’s state-backed firms from blurring the line between commercial interests and the national interest. Government money subsidises and protects companies as they buy up dual-use technology or skew international markets. China has used its state-directed commercial clout in smaller countries to influence foreign policy in, say, the European Union. The West needs transparency about the funding of political parties, think-tanks and university departments.
 
+特朗普也说得对，美国需要重新对中国的行为设定预期。当下的贸易系统不能阻止中国国有企业在商业利润和国家利润之间模糊不清的界定。政府补贴和保护企业随着他们收购军民两用技术以及恶意影响国际市场。中国已经在一些更小的国家使用其国家主导的商业影响力影响其外资政策，比如说，欧盟。西方国家需要政治党派、智库以及大学部门的资金的透明度。
+
 Third, Mr Trump’s unique ability to signal his disregard for conventional wisdom seems to have been effective. He is not subtle or consistent, but as with Canadian and Mexican trade, American bullying can lead to dealmaking. China will not be so easily pushed around—its economy depends less on exports to America than Canada’s and Mexico’s do and Mr Xi cannot afford meekly to disavow his Chinese Dream in front of his people. Yet Mr Trump’s willingness to disrupt and offend has already wrong-footed China’s leaders, who thought they could count on America being unwilling to rock the boat.
 
+第三，特朗普的无视传统智慧的唯一能力似乎很有效。他对事情既不敏感也不从一而终，但是正如与加拿大和墨西哥的贸易协议，美国人的霸凌能促进交易。中国将不再轻易地摆布——其经济对美国出口的依赖比加拿大和墨西哥要小得多，习近平不能在他的人民面前否定他的中国梦。然而特朗普破坏和冒犯中国的想法已经让中国领导人措手不及了，他们以为能指望美国别再给他们捣乱了。
+
+
 For what comes next, however, Mr Trump needs a strategy, not just tactics. A starting point must be to promote America’s values. Mr Trump acts as if he believes that might is right. He shows a cynical disdain for the values America enshrined in global institutions after the second world war. If he follows that course America will be diminished as an idea and as a moral and political force. When America competes with China as a guardian of a rules-based order, it starts from a position of strength. But any Western democracy that enters a ruthless race to the bottom with China will—and should—lose.
+
+然而接下来会发生什么，特朗普需要一些策略，不仅仅是战术。其中一点就是必须弘扬美国的价值观。特朗普行动起来了，假如他相信这些策略可能是正确的。他在二战后全球体系中，对美国所珍视的价值观表现出一种愤世嫉俗的蔑视。如果他选择这条路，那么美国作为一种理念、一种道德以及一种政治力量将会被削弱。当美国作为基于规则的秩序守护者与中国竞争的时候，它应该从一个强势的角色开始。但是任何西方的民主与中国进入一场残酷的竞次竞争时——将会输，也应该输。
 
 The strategy should leave room for China to rise peacefully—which inevitably also means allowing China to extend its influence. That is partly because a zero-sum attempt at containment is likely to lead to conflict. But it is also because America and China need to co-operate despite their rivalry. The two countries are more commercially intertwined than America and the Soviet Union ever were. And they share responsibilities including—even if Mr Trump denies it—the environment and security interests, such as the Korean peninsula.
 And America’s strategy must include the asset that separates it most clearly from China: alliances. In trade, for example, Mr Trump should work with the EU and Japan to press China to change. In defence Mr Trump should not only abandon his alliance-bashing but bolster old friends, like Japan and Australia, while nurturing new ones, like India and Vietnam. Alliances are America’s best source of protection against the advantage China will reap from its increasing economic and military power.
 
+这个策略会留给中国空间和平地崛起——这也不可避免地意味着允许中国去扩张其影响力。部分原因是因为遏制零和博弈的苗头可能导致了冲突。但这也是因为美国和中国需要相互合作，尽管之间存在竞争。这两个国家在商业上千丝万楼的关系比美国与前苏联的关系更有过之而无不及。他们承担的责任包括——假如特朗普否定这一点的话——环境和安全利益，比如像朝鲜半岛。美国的策略必须包括清楚地与中国分离出来的一样东西：同盟。在贸易上，比如，特朗普应该与欧盟与日本合作以及迫使中国作出改变。在防御上，特朗普不应该仅仅放弃他抨击同盟的言论，在培养新的关系，如印度和越南时，更应该支持一些老朋友，如日本和澳洲。同盟是美国最好的保护资源，以对抗中国从日益增长的经济和军事力量中获益的优势。
+
 Perhaps it was inevitable that China and America would end up rivals. It is not inevitable that rivalry must lead to war.
+
+也许中国和美国将终止竞争是必然的。竞争导致战争并非必然。
