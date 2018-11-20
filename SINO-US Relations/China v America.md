@@ -62,4 +62,4 @@ And America’s strategy must include the asset that separates it most clearly f
 
 Perhaps it was inevitable that China and America would end up rivals. It is not inevitable that rivalry must lead to war.
 
-也许中国和美国将终止竞争是必然的。竞争导致战争并非必然。
+也许中国和美国必然会终止竞争。竞争导致战争并非必然。
