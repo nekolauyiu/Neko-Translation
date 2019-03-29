@@ -1,6 +1,6 @@
 Fury over Taiwan mayor’s China visit
 
-台湾市长大陆之行惹众怒
+对台湾市长大陆之行的不满
 
 Some of Han Kuo-yu’s meetings with senior Chinese cadres were not officially scheduled
 
