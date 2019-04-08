@@ -14,7 +14,7 @@ CB Insights研究发现，在101家新创公司失败案例中，其中有8%的�
 
 Resentment against long working hours in China’s tech industry is growing among software developers that use the Github open development platform after a user posted a copy of China’s labour laws on the site and named two e-commerce companies that practice the 996 work schedule – 9am to 9pm, six days a week.
 
-在中国科技行业中， 在一名成员发布了一份中国劳动法法规并点名两家实行996——早九点到晚九点，周一到周六——工作制度的电子商务公司之后，使用Github——一个开放的开发平台——软件开发人员对长时间工作的愤怒日益不满。
+在中国科技行业中， 在一名成员发布了一份中国劳动法法规并点名两家实行996——早九点到晚九点，周一到周六——工作制度的电子商务公司之后，使用Github——一个开放的开发平台——软件开发人员对长时间工作的愤怒正开始日益不满。
 
 A Github user called “996icu” posted a so-called repo (repository) on Tuesday complaining that working 996 all the time means running the risk of ending up in the “intensive care unit”, adding that “developers’ lives matter”, a reference to the US activist movement Black Lives Matter.
 
