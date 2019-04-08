@@ -6,7 +6,7 @@ CB Insights study found that burnout was the primary cause of 8 per cent of the 
 Yingzhi Yang  
 Published: 6:00am, 29 Mar, 2019
 
- “开发者生存状况”——中国程序员使用Github抗议中国的996工作制度
+ “开发者的命很重要”——中国程序员使用Github抗议中国的996工作制度
 该项目发布之后收到了开发者们广泛支持以及超过30,000个点赞。
 CB Insights研究发现，在101家新创公司失败案例中，其中有8%的原因是由员工疲倦引起的。
 
