@@ -7,7 +7,7 @@
 Yingzhi Yang  
 Published: 6:00am, 29 Mar, 2019
 
-##### “开发者的命也是命”—— 程序员使用Github抗议中国的996工作制度
+##### “开发者的命很重要”—— 程序员使用Github抗议中国的996工作制度
 - 该项目发布之后得到了开发者们广泛支持，收到了超过30,000个点赞。
 - CB Insights研究发现，在101家新创公司失败案例中，其中有8%的原因是由员工疲倦引起的。
 
@@ -17,7 +17,7 @@ Resentment against long working hours in China’s tech industry is growing amon
 
 A Github user called “996icu” posted a so-called repo (repository) on Tuesday complaining that working 996 all the time means running the risk of ending up in the “intensive care unit”, adding that “developers’ lives matter”, a reference to the US activist movement Black Lives Matter.
 
-Github用户“996icu”在周二发布了一个仓库，抱怨一直996工作意味着冒着被送进“重症监护室”的风险，并补充说，“开发者的命也是命”，引用了美国维权运动的口号“黑人的命也是命”。（BLM: Black Lives Matter是一项国际活动家运动，起源于非裔美国人社区，旨在反对针对黑人的暴力和系统性种族主义。 BLM定期举行抗议活动，反对警察杀害黑人，以及更广泛的问题，如种族貌相，警察暴行和美国刑事司法系统中的种族不平等；以上来源维基百科。译者注）
+Github用户“996icu”在周二发布了一个仓库，抱怨一直996工作意味着冒着被送进“重症监护室”的风险，并补充说，“开发者的命很重要”，引用了美国维权运动的口号“黑人的命很重要”。（BLM: Black Lives Matter是一项国际活动家运动，起源于非裔美国人社区，旨在反对针对黑人的暴力和系统性种族主义。 BLM定期举行抗议活动，反对警察杀害黑人，以及更广泛的问题，如种族貌相，警察暴行和美国刑事司法系统中的种族不平等；以上来源维基百科。译者注）
 
 By Thursday night, the Github post had more than 30,000 “stars”, a metric that allows users to bookmark a project they like. 996icu was also ranked No 1 on the site’s trending page on Thursday.
 
