@@ -1,5 +1,5 @@
 Europe takes on the tech giants  
-欧洲制裁科技巨头  
+欧洲挑战科技巨头  
 To understand the future of Silicon Valley, cross the Atlantic  
 大西洋另一头，硅谷的未来  
 
