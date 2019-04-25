@@ -9,7 +9,7 @@ BEIJING
 
 Life is often hard for internal migrants in China, especially those from Henan and the north-east
 
-生活对于中国内陆的老百姓来说，特别地不容易，尤其是河南省以及位于东北的百姓们
+生活对于中国内陆的老百姓来说，特别地不容易，尤其是河南省以及位于东北的百姓们。
 
 The school children started to vomit. Some fell unconscious and were whisked into hospital. Angry parents demanded an explanation. The food-poisoning scandal quickly lit up Chinese social media. A kindergarten teacher in the central province of Henan was detained—accused of adding sodium nitrite, which can be toxic in large doses, to the meal boxes of at least 23 pupils late last month.
 
