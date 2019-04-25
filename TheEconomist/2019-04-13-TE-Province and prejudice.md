@@ -6,6 +6,7 @@ Province and prejudice
 
 
 BEIJING
+
 Life is often hard for internal migrants in China, especially those from Henan and the north-east
 
 生活对于中国内陆的老百姓来说，特别地不容易，尤其是河南省以及位于东北的百姓们
