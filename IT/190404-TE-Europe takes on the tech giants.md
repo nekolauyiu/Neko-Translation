@@ -11,6 +11,10 @@ Yet if you want to understand where the world’s most powerful industry is head
 
 不过如果你想要了解全球最有影响力的科技行业的发展方向，那么目光不能局限于华盛顿和加利福尼亚，而要关注布鲁塞尔和柏林。让人大跌眼镜的是当美国还在犹豫不决的时候欧洲已经开始行动起来了。本周，谷歌因广告市场恶意竞争而被罚款17亿美元。欧盟很快将通过新的数字版权法案。Spotify向欧盟投诉苹果涉嫌滥用反垄断法。正如我们的报道所说，欧盟正在率先推行旨在保护个人隐私信息和收益权的新规则，并鼓励科技公司参与竞争。如果这些新规则能够起效，它将可以让数百万用户受益，刺激经济增长，并约束那些没有相应责任感、却聚集了巨大力量的科技巨头。
 
+Neko的翻译：
+
+然而，假如你想知道世界上最强大的行业正走向何方的话，不仅仅把目光放在华盛顿和加州，而且要关注布鲁塞尔和柏林。与以往不同的是，当美国人犹豫不决时，欧洲人已经开始行动了。本周，谷歌在广告市场因妨碍竞争而被欧洲罚款17亿美元。欧洲可能很快会通过新的数字版权法案。Spotify向欧洲投诉，苹果公司涉嫌违反垄断法。以及正如我们的简报所提及的，欧盟正在引领一种独特的技术方案，旨在让个人控制他们自己的信息并从中获利，并鼓励开放的科技公司参与竞争。假如这个方案能实施，可以让数百万人获益、推动经济发展以及制约那些具有无限网络力量而没有相应责任感的科技巨头。
+
 Western regulators have had showdowns ver antitrust with tech firms before, including ibm in the 1960s and Microsoft in the 1990s. But
 today’s giants are accused not just of capturing huge rents and stifling competition, but also of worse sins, such as destabilising democracy(through misinformation) and abusing individual rights (by invading privacy). As ai takes off, demand for information is exploding, making data a new and valuable resource. Yet vital questions remain: who controls the data? How should the profits be distributed? The only thing almost every-one can agree on is that the person deciding cannot be Mark Zuckerberg, Facebook’s scandal-swamped boss.
 
