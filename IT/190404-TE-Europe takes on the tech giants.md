@@ -18,7 +18,11 @@ Neko的翻译：
 Western regulators have had showdowns ver antitrust with tech firms before, including ibm in the 1960s and Microsoft in the 1990s. But
 today’s giants are accused not just of capturing huge rents and stifling competition, but also of worse sins, such as destabilising democracy(through misinformation) and abusing individual rights (by invading privacy). As ai takes off, demand for information is exploding, making data a new and valuable resource. Yet vital questions remain: who controls the data? How should the profits be distributed? The only thing almost every-one can agree on is that the person deciding cannot be Mark Zuckerberg, Facebook’s scandal-swamped boss.
 
-西方监管机构此前对科技公司就反垄断问题进行过摊牌，包括20世纪60年代的IBM和90年代的微软。但是今天的巨头们不仅被指责攫取巨额费用和抑制竞争，还被指责犯下更严重的罪行，比如破坏民主稳定(舆论误导)和滥用个人权利(侵犯隐私)。随着人工智能落地，信息需求正在爆炸式增长，这使得数据成为一个新的有价值的资源。然而，关键的问题依然存在：谁来控制数据？利润如何分配？唯一可以肯定的事情是所有人都同意这个人不是Facebook丑闻缠身的马克扎克伯克(Mark Zuckerberg).
+西方监管机构此前对科技公司就反垄断问题进行过摊牌，包括60年代的IBM和90年代的微软。但是今天的巨头们不仅被指责攫取巨额费用和抑制竞争，还被指责犯下更严重的罪行，比如破坏民主稳定(舆论误导)和滥用个人权利(侵犯隐私)。随着人工智能落地，信息需求正在爆炸式增长，这使得数据成为一个新的有价值的资源。然而，关键的问题依然存在：谁来控制数据？利润如何分配？唯一可以肯定的事情是所有人都同意这个人不是Facebook丑闻缠身的马克扎克伯克(Mark Zuckerberg).
+
+Neko的翻译：
+西方监管机构此前对科技公司就反垄断问题摊过牌，包括60年代时的IBM以及90年代的微软。但今天巨头依然被指责不仅收取巨额费用和打击竞争对手，而且更糟糕的是，比如（通过误导手段）带来动荡的民主环境以及(通过入侵个人隐私而)滥用个人权利。随着AI的兴起，对于信息的需求正在井喷，使得数据成为一种新的，有价值的资源。然后，核心问题依然存在：谁来控制这些数据？利益应该如何分配？几乎每个人都认为不会是脸书丑闻缠身的老板马克•扎克伯格来处理这些问题。
+
 
 The idea of the eu taking the lead on these questions will seem bizarre to many executives who view it as an entrepreneurial wasteland and the spiritual home of bureaucracy. In fact, Europe has clout and new ideas. The big five tech giants, Alphabet, Amazon, Apple, Facebook and Microsoft, make on average a quarter of their sales there. And as the world’s biggest economic bloc, the eu’s standards are often copied in the emerging world.
 Europe’s experience of dictatorship makes it vigilant about privacy. Its regulators are less captured by lobbying than America’s and its courts have a more up-to-date view of the economy. Europe’s lack of tech firms helps it take a more objective stance.
