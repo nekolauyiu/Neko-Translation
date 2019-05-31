@@ -32,7 +32,7 @@ Europe’s experience of dictatorship makes it vigilant about privacy. Its regul
 
 
 Neko的翻译：
-对于许多企业高管而言，欧盟带头解决这些问题的想法让人觉得奇怪，这些高管们把欧盟视为企业的荒芜之地以及官僚主义的精神家园。事实上，欧洲拥有影响力以及新构思。五家技术巨头，甲骨文、亚马逊、苹果、脸书以及微软，平均有四分之一的销量额来自于欧洲。
+对于许多企业高管而言，欧盟带头解决这些问题的想法让人觉得奇怪，这些高管们把欧盟视为企业的荒芜之地以及官僚主义的精神家园。事实上，欧洲拥有影响力以及新构思。五家技术巨头，甲骨文、亚马逊、苹果、脸书以及微软，平均有四分之一的销售额来自于欧洲。作为世界最大的经济体，欧盟的标准也被新兴国家效仿。欧洲独裁的历史使其对隐私一直保持警惕之心。相比美国，欧洲的监管者很少被游说者说服，同时，欧盟的法院对经济有着更多新的看法。欧洲缺乏科技公司的帮助，使其采取更客观的立场。
 
 
 A key part of Europe’s approach is deciding what not to do. For now it has dismissed the option of capping tech firms’ profits and regulating them like utilities, which would make them stodgy, permanent monopolies. It has also rejected break-ups: thanks to network effects, one of the Facebabies or Googlettes might simply become dominant again. Instead the eu’s doctrine marries two approaches. One draws on its members’ cultures, which, for all their differences, tend to protect individual privacy. The other uses the eu’s legal powers to boost competition.
