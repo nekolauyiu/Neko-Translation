@@ -46,6 +46,9 @@ The first leads to the assertion that you have sovereignty over data about you: 
 
 第一条原则是你对你自己数据有绝对的所有权：你有权访问，修改并授权给他人使用。这就是《通用数据保护条例》(GDPR)的核心，其准则已被世界上很多国家效仿。进一步是允许服务间的互通性，以便用户可以容易的在服务提供商之间切换，转向有更好财务条款或者道德规范的公司。(想象一下你可以讲你所有的朋友和帖子转移到一家隐私标准比Facebook更高，并且将会分享一部分广告收入给你的Acebook.) 其中有一种模式是一项在英国名为“开放银行”的计划，该计划允许银行客户与其他银行分享他们的消费习惯、定期付款等数据。英国政府的一份新报告称，科技公司必须遵循同样的开放模式。
 
+Neko翻译：
+第一种观点是个人拥有数据主权：你有权利使用、修改并决定谁可以使用这些数据。通用数据保护条例（GDPR）的原则已经被全球众多国家所复制。下一步是允许服务之间的互通性，以致用户能更容易地更换供应商，
+
 Europe’s second principle is that firms cannot lock out competition. That means equal treatment for rivals who use their platforms. The eu has blocked Google from competing unfairly with shopping sites that appear in its search results or with rival browsers that use its Android operating system. A German proposal says that a dominant firm must share bulk, anonymised data with competitors, so that the economy can function properly instead of being ruled by a few data-hoarding giants.(For example, all transport firms should have access to Uber’s information about traffic patterns.) Germany has changed its laws to stop tech giants buying up scores of startups that might one day pose a threat.
 
 欧盟的第二条原则是公司不能垄断竞争。这意味着对于使用它们平台的竞争对手也要一视同仁。欧盟已经禁止Google利用其搜索结果中出现的购物网站或使用其Android操作系统的竞争对手的浏览器进行不公平竞争。德国一项提议称占主导地位的公司必须同竞争对手大量共享匿名数据，以便促使经济正常运作，而不是被少数公司垄断。(例如，所有的运输公司都应该可以访问Uber的交通模式信息.) 德国已经修改法律阻止科技巨头收购那些有潜在威胁的创业公司。
