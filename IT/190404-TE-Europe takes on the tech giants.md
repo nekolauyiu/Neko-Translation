@@ -30,7 +30,6 @@ Europe’s experience of dictatorship makes it vigilant about privacy. Its regul
 欧盟在这些问题上起了带头作用的观点对很多高管而言很荒唐，他们将欧盟视为创业荒地和官僚主义精神家园。然而事实上，欧洲有着巨大影响力和新的想法。Alphabet, Amazon, Apple, Facebook和Microsoft这五大科技巨头平均有四分之一的业绩来自于此。同时作为世界上最大的经济体，欧盟的标准经常被新兴国家复制。
 欧洲的独裁历史使得他们对于隐私十分敏感。与美国相比，它的监管制度更少受到游说影响，它的法院对于经济看法更贴近现状。欧洲技术公司的缺乏使得其能采取更客观的立场。
 
-
 Neko的翻译：
 对于许多企业高管而言，欧盟带头解决这些问题的想法让人觉得奇怪，这些高管们把欧盟视为企业的荒芜之地以及官僚主义的精神家园。事实上，欧洲拥有影响力以及新构思。五家技术巨头，甲骨文、亚马逊、苹果、脸书以及微软，平均有四分之一的销售额来自于欧洲。作为世界最大的经济体，欧盟的标准也被新兴国家效仿。欧洲独裁的历史使其对隐私一直保持警惕之心。相比美国，欧洲的监管者很少被游说者说服，同时，欧盟的法院对经济有着更多新的看法。欧洲缺乏科技公司的帮助，使其采取更客观的立场。
 
@@ -38,6 +37,10 @@ Neko的翻译：
 A key part of Europe’s approach is deciding what not to do. For now it has dismissed the option of capping tech firms’ profits and regulating them like utilities, which would make them stodgy, permanent monopolies. It has also rejected break-ups: thanks to network effects, one of the Facebabies or Googlettes might simply become dominant again. Instead the eu’s doctrine marries two approaches. One draws on its members’ cultures, which, for all their differences, tend to protect individual privacy. The other uses the eu’s legal powers to boost competition.
 
 欧洲所采取的策略的一个关键部分是决定不该做什么。目前，欧盟已经放弃了限制科技公司利润并像公用事业公司那样监管它们的选择，这将使它们成为顽固的、永久的垄断企业。同时也拒绝和这些公司分手。在互联网效应下，下一个Facebook或者Google可能很容易又占据主导地位。相反，欧盟策略融合了两种方法。一种是利用其成员的文化，尽管他们之间存在差异，但这种文化往往会保护个人隐私。另一个则利用欧盟的法律手段来促进竞争。
+
+Neko的翻译：
+欧洲策略最重要的一点就是有所不为。而目前放弃限制科技公司的利润的选择以及像管理公共事务那样管理这些科技公司，使得这些公司死气沉沉而又长期具有垄断性。这些公司也拒绝拆分：拜网络影响所赐，“小脸书”或者”小谷歌“可能会再次占据主导地位。相反，欧盟则融合了两种管理方式。一种是利用其成员的文化，尽管他们各有不同，但是都倾向于保护个人隐私。另外则用欧盟的法律力量来促进竞争。
+
 
 The first leads to the assertion that you have sovereignty over data about you: you should have the right to access them, amend them and determine who can use them. This is the essence of the General Data Protection Regulation (gdpr), whose principles are already being copied by many countries across the world. The next step is to allow interoperability between services, so that users can easily switch between providers, shifting to firms that offer better financial terms or treat customers more ethically.(Imagine if you could move all your friends and posts to Acebook, a firm with higher privacy standards than Facebook and which gave you a cut of its advertising revenues.) One model is a scheme in Britain called Open Banking, which lets bank customers share their data on their spending habits, regular payments and so on with other providers. A new report for Britain’s government says that tech firms must open up in the same way.
 
