@@ -53,6 +53,9 @@ Europe’s second principle is that firms cannot lock out competition. That mean
 
 欧盟的第二条原则是公司不能垄断竞争。这意味着对于使用它们平台的竞争对手也要一视同仁。欧盟已经禁止Google利用其搜索结果中出现的购物网站或使用其Android操作系统的竞争对手的浏览器进行不公平竞争。德国一项提议称占主导地位的公司必须同竞争对手大量共享匿名数据，以便促使经济正常运作，而不是被少数公司垄断。(例如，所有的运输公司都应该可以访问Uber的交通模式信息.) 德国已经修改法律阻止科技巨头收购那些有潜在威胁的创业公司。
 
+Neko的翻译：
+欧洲的第二个原则是不能垄断竞争。这意味着在欧洲的公司必须公平竞争。欧盟已经禁止谷歌与出现在其搜索结果的购物网站或者使用其安卓系统的竞争对手的浏览器进行不公平竞争。一个德国的提议声称，一家大型公司必须与其竞争对手分享大量匿名数据，使得经济能够平稳运行，而不致于被一些数据储存巨头们所控制。（比如，所有的交通公司应该能访问优步关于交通模式的信息。）德国已经修改了法律，制止巨头们收购大量新创公司，这些新创公司总有一天可能会对其构成威胁。
+
 Europe’s approach offers a new vision, in which consumers control their privacy and how their data are monetised. Their ability to switch creates competition that should boost choice and raise standards. The result should be an economy in which consumers are king and information and power are dispersed. It would be less cosy for the tech giants. They might have to offer a slice of their profits (the big five made $150bn last year) to their users, invest more or lose market share.
 
 欧盟的方案描绘了一幅新的愿景，即消费者们能够控制他们的隐私和数据被货币化。他们的转换能够创造新的竞争，促使新的选择和更高的标准。创造出一个顾客至上，信息和权力分散的经济体。当然，这对科技巨头而言将不会那么舒适。他们将不得不让利一部分给他们的客户(去年五大巨头利润大约为1500亿美元)，投入更多或者失去部分市场.
