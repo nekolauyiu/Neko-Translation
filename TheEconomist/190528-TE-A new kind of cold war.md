@@ -1,11 +1,18 @@
 A new kind of cold war
+
+一场新冷战
+
 Trade has long anchored the relationship between China and America, but it is no longer enough. 
+
+在中美之间的贸易战已非一日之寒，但远未结束
 
 The world should be worried, says David Rennie
 
+任大伟表示，世界不用担心中美关系
 
 Since china emerged from the wreckage of Maoism 40 years ago, the profit motive has become a pillar of stability in its relations with America. Presidential candidates might accuse China of stealing jobs. Spy scandals could simmer. Then corporate bosses and politicians in Beijing and Washington would decide that all sides were making too much money to let relations sour. This focus on mutual self-interest involved queasy compromises. Soon after troops massacred hundreds, possibly thousands, around TiananmenSquareinJune1989, President George H.W.Bush wrote discreetly to Deng Xiaoping to urge joint efforts to prevent “tragic recent events” from harming relations. The financial crash of 2008 revealed a dangerous co-dependency between America the importer of cheap goods and China the thrifty exporter. New terms tried to capture this symbiosis: “Chimerica”, or “the g2”.
 
+自从中国从40年前毛泽东主义时代走出来后，经济驱动已经成为与美国关系中的稳定支柱。总统候选人也许会指责中国夺走了国内的就业机会。
 
 
 Suddenly, however, making money is not enough. In the past couple of years, debate about how to get engagement to work has given way to talk of strategic competition and security threats. Rather than catchy neologisms, scholars are reaching for historical analogies. Some talk of 1914,when clashing Britis hand German ambitions swept aside deep bonds of commerce. China analysts obsess over the “Thucydides trap” that supposedly dooms upstart nations to fighting incumbent powers, as the Greek historian wrote of Sparta and Athens.
