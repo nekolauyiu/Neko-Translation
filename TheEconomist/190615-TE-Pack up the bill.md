@@ -44,5 +44,6 @@ On June 12th Liu Xiaoming, China’s ambassador to Britain, told the BBC that th
 
 The U-turn is a humiliation for Beijing, which has sought to tighten its grip on Hong Kong. But at least it is one the Communist Party can pin on Ms Lam rather have the Chinese president, Xi Jinping, portrayed in poor light. Even within the limits imposed by the Communist Party, Hong Kong enjoys a degree of free expression and political flexibility, which is more than can be said for mainland China.
 
+大反转对北京来说是一种耻辱，以后会对香港实行更严格的管控。但是至少林郑来背这个黑锅比怪责习近平行事阴险要好。尽管受到共产党的控制，香港仍享有一定程度上的言论自由以及政治灵活度，当然这是对于中国大陆而言。
 
 Mrs Lam, for her part, deflected reporters’ repeated questions about whether she would heed the demands of protesters that she resign. There would be a precedent for doing so. Tung Chee-hwa, who was chief executive when the anti-subversion law was shelved, stepped down a few months later, apparently because of his handling of that bill. Mrs Lam said the central government had shown her “understanding, trust, respect and support”. To keep her job, she will need more such backing.
