@@ -23,7 +23,7 @@ Few had expected the government to make such a concession, let alone so soon. Th
 
 It appears that public pressure has succeeded—for now, at least—in making the government reconsider a policy that had strong backing from the Communist Party in Beijing. Protests have not always proved so successful. In 2003 the government shelved a controversial anti-subversion bill after hundreds of thousands of people took to the streets. But in 2014 protesters occupied streets in busy commercial areas for 79 days to push for democratic reform and secured no concessions. Since then many observers thought leaders in Hong Kong and Beijing had become even less inclined to give way to public opinion on sensitive political matters.
 
-
+这证明了公众的舆论压力是成功的——至少目前是这样的——使得香港政府认为政策获得了北京共产党的支持。在2003年政府在数以千计的市民示威后暂缓了反颠覆罪的条例。但在2014年示威者为了推动民主改革和保障，占领了繁忙街道79天后，政府没有作出让步。自那以来，观察人士认为，香港和北京当局在敏感政治事务上变得更不愿意向民意屈服。
 
 On this occasion, however, opposition has involved far more than the usual critics of the party’s policies in Hong Kong. Businesspeople, lawyers and foreign governments have expressed considerable anxiety about the legislation. Although the proposed bill would allow extraditions to more than 170 other jurisdictions, the protests have focused on the potential for people in Hong Kong, including foreigners there, to be sent to mainland China, where courts are explicitly under the Communist Party’s control and dissidents are jailed on trumped-up criminal charges.
 
