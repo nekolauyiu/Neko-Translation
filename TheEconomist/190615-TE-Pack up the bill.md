@@ -19,9 +19,11 @@ IT WAS a remarkable climbdown in the face of mass protests. Just three days afte
 
 Few had expected the government to make such a concession, let alone so soon. The government had earlier planned to get the bill adopted by the Legislative Council by the middle of July, when the body is due to begin its summer break. It had described getting the law passed as “urgent”. But on June 15th Mrs Lam told reporters that the government would suspend the proceedings and would not set a deadline for resuming them.
 
-
+鲜有人预料政府会这么快做出让步，更别说在这么短的时间内了。政府早前希望立法会七月中旬暑期休假时通过该条例。立法会将该法案描述为“紧急”状态。但是6月15日林郑告诉记者，政府决定暂缓该议案，对重启议案不设时间期限。
 
 It appears that public pressure has succeeded—for now, at least—in making the government reconsider a policy that had strong backing from the Communist Party in Beijing. Protests have not always proved so successful. In 2003 the government shelved a controversial anti-subversion bill after hundreds of thousands of people took to the streets. But in 2014 protesters occupied streets in busy commercial areas for 79 days to push for democratic reform and secured no concessions. Since then many observers thought leaders in Hong Kong and Beijing had become even less inclined to give way to public opinion on sensitive political matters.
+
+
 
 On this occasion, however, opposition has involved far more than the usual critics of the party’s policies in Hong Kong. Businesspeople, lawyers and foreign governments have expressed considerable anxiety about the legislation. Although the proposed bill would allow extraditions to more than 170 other jurisdictions, the protests have focused on the potential for people in Hong Kong, including foreigners there, to be sent to mainland China, where courts are explicitly under the Communist Party’s control and dissidents are jailed on trumped-up criminal charges.
 
