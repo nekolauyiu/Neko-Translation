@@ -27,6 +27,7 @@ It appears that public pressure has succeeded—for now, at least—in making th
 
 On this occasion, however, opposition has involved far more than the usual critics of the party’s policies in Hong Kong. Businesspeople, lawyers and foreign governments have expressed considerable anxiety about the legislation. Although the proposed bill would allow extraditions to more than 170 other jurisdictions, the protests have focused on the potential for people in Hong Kong, including foreigners there, to be sent to mainland China, where courts are explicitly under the Communist Party’s control and dissidents are jailed on trumped-up criminal charges.
 
+然而这次，在香港的反对派的声音远比平时对建制派政策批评的声音多得多。商界人士、律师以及外国政府都对立法机构表示也极度担忧。尽管草拟中的法案允许向170多个司法管辖区进行引渡，示威者认为在香港的公民包括外国人会被送返到中国大陆，而大陆的法庭由中国共产党掌握，持不同政见者会因为莫须有的罪名而入狱。
 
 Opponents of the bill have been organising what they hope will be another large demonstration in Hong Kong on June 16th. They say it will go ahead despite Mrs Lam’s announcement, in order to push for the complete scrapping of the bill and to protest against what they say was the excessive use of force by the police during the outbreak of violence on June 12th. Amid reports of suspected protesters being sought among the scores of wounded in hospital, some also want Ms Lam to guarantee that there will be no prosecutions. It is telling that Mrs Lam has not retracted her claim that the unrest had been “a riot”.
 
