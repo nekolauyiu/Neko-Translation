@@ -31,6 +31,8 @@ On this occasion, however, opposition has involved far more than the usual criti
 
 Opponents of the bill have been organising what they hope will be another large demonstration in Hong Kong on June 16th. They say it will go ahead despite Mrs Lam’s announcement, in order to push for the complete scrapping of the bill and to protest against what they say was the excessive use of force by the police during the outbreak of violence on June 12th. Amid reports of suspected protesters being sought among the scores of wounded in hospital, some also want Ms Lam to guarantee that there will be no prosecutions. It is telling that Mrs Lam has not retracted her claim that the unrest had been “a riot”.
 
+反对条例人士希望在6月16日组织另一场大规模游行示威。他们声称，不管林郑宣布暂缓该条例，依然会上街，为了能够彻底撤回条例以及抗议警方在6月12日的冲突中滥用武力。由于条例的暂缓，在行动中受伤住院的示威者也希望林郑能保证他们不会被起诉。据称林郑不会收回由骚乱改为“暴动”的声明。
+
 
 Hong Kong’s government had argued that the main reason for introducing the bill now was to enable a suspect to be sent to face trial in Taiwan, where he is alleged to have murdered his girlfriend. The man is currently in prison in Hong Kong for a money-laundering offence and is due to be released in October. The bill would remove a provision in Hong Kong’s current law that excludes extraditions to “other parts of China”, which in Hong Kong means the mainland, as well as Macau and Taiwan. But Mrs Lam noted that Taiwan has said it will not accept the suspect’s extradition under the new law. She said that since the bill would not solve that one case, it was no longer urgent to pass it.
 
