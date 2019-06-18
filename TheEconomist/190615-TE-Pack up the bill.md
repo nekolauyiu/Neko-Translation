@@ -40,6 +40,7 @@ Hong Kong’s government had argued that the main reason for introducing the bil
 
 On June 12th Liu Xiaoming, China’s ambassador to Britain, told the BBC that the government in Beijing had nothing to do with initiating the bill. At her press conference, Mrs Lam said the central authorities had supported both her efforts to introduce the bill and her decision to shelve it. But there has been widespread speculation that the central leadership has been far more actively involved. Mrs Lam owes her position to a committee of local residents that is deliberately stacked with sympathisers of the Communist Party’s policies in the territory. She would be highly unlikely to make any move on such an important matter without seeking the party’s blessing. She declined to comment on local reports that she met one of China’s most senior politicians, Han Zheng, in the Chinese border city of Shenzhen on June 14th.
 
+6月12日，中国驻英国大使刘晓明告诉BBC，北京没有让香港修例。在她的新闻发布会上，林郑表示中央政府对其提出法案和决定搁置都表示支持。但是有普遍言论怀疑，中央领导层积极参与其中。林郑的职位归功于一些由当地居民组成的委员会，委员会是共产党政策在香港的坚定拥挤者。在这样一个重要的事情上，如果得不到共产党的支持，她是很难开展工作的。她对本地传媒关于6月14日在深圳边境与中国高层官员韩正见面一事不予置评。
 
 The U-turn is a humiliation for Beijing, which has sought to tighten its grip on Hong Kong. But at least it is one the Communist Party can pin on Ms Lam rather have the Chinese president, Xi Jinping, portrayed in poor light. Even within the limits imposed by the Communist Party, Hong Kong enjoys a degree of free expression and political flexibility, which is more than can be said for mainland China.
 
