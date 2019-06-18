@@ -1,14 +1,21 @@
 Pack up the bill
+反送中
 
 Hong Kong’s leader backs down over controversial extradition bill
 
+香港特道对具有争议性的逃犯引渡条件法案妥协
+
 Now some ask whether Carrie Lam can survive in her job
+有人提出，林郑月娥能否保住职位
 China
+
 ________________________________________
 Jun 15th 2019
 HONG KONG
+
 IT WAS a remarkable climbdown in the face of mass protests. Just three days after suggesting that to retreat would be like spoiling a child, Hong Kong’s chief executive, Carrie Lam, announced the indefinite shelving of a proposed law that would allow the extradition of criminal suspects to mainland China. Mrs Lam now says she wants to avoid “chaos” in Hong Kong. Her U-turn came after the bill had provoked the biggest demonstration in many years, and another protest that escalated into the most violent social unrest in decades.
 Few had expected the government to make such a concession, let alone so soon. The government had earlier planned to get the bill adopted by the Legislative Council by the middle of July, when the body is due to begin its summer break. It had described getting the law passed as “urgent”. But on June 15th Mrs Lam told reporters that the government would suspend the proceedings and would not set a deadline for resuming them.
+
 
 
 It appears that public pressure has succeeded—for now, at least—in making the government reconsider a policy that had strong backing from the Communist Party in Beijing. Protests have not always proved so successful. In 2003 the government shelved a controversial anti-subversion bill after hundreds of thousands of people took to the streets. But in 2014 protesters occupied streets in busy commercial areas for 79 days to push for democratic reform and secured no concessions. Since then many observers thought leaders in Hong Kong and Beijing had become even less inclined to give way to public opinion on sensitive political matters.
