@@ -3,10 +3,11 @@ Pack up the bill
 
 Hong Kong’s leader backs down over controversial extradition bill
 
-香港特道对具有争议性的逃犯引渡条件法案妥协
+香港特首对具有争议性的逃犯引渡条件法案的妥协
 
 Now some ask whether Carrie Lam can survive in her job
 有人提出，林郑月娥能否保住职位
+
 China
 
 ________________________________________
@@ -48,4 +49,4 @@ The U-turn is a humiliation for Beijing, which has sought to tighten its grip on
 
 Mrs Lam, for her part, deflected reporters’ repeated questions about whether she would heed the demands of protesters that she resign. There would be a precedent for doing so. Tung Chee-hwa, who was chief executive when the anti-subversion law was shelved, stepped down a few months later, apparently because of his handling of that bill. Mrs Lam said the central government had shown her “understanding, trust, respect and support”. To keep her job, she will need more such backing.
 
-对于林郑而言，她回避了记者关于示威者对她提出辞职要求的反复追问。这样的事情是有先例的。当前特首董建华提出暂缓反颠覆罪几个月后辞职了，很明显法案是由他主要负责的。林郑表示中央政府对她表示“理解‘信任和支持”。但是要保住这份工作，她将需要北京更多的支持。
+对于林郑而言，她回避了记者关于示威者对她提出辞职要求的反复追问。这样的事情是有先例的。当前特首董建华提出暂缓反颠覆罪几个月后辞职了，很明显法案是由他主要负责的。林郑表示中央政府对她表示“理解、信任和支持”。但是要保住这份工作，她将需要北京更多的支持。
