@@ -16,6 +16,9 @@ Jun 13th 2019 edition
 
 Three things stand out about the protesters who rocked Hong Kong this week. There were a great many of them. Hundreds of thousands took to the streets in what may have been the biggest demonstration since Hong Kong was handed back to China in 1997. Most of them were young—too young to be nostalgic about British rule. Their unhappiness at Beijing‘s heavy hand was entirely their own. And they showed remarkable courage. Since the “Umbrella Movement” of 2014, the Communist Party has been making clear that it will tolerate no more insubordination—and yet three days later demonstrators braved rubber bullets, tear gas and legal retribution to make their point. All these things are evidence that, as many Hong Kongers see it, nothing less than the future of their city is at stake.
 
+本周，在香港示威者们提出了三个诉求。示威的人非常多。自1997年香港回归后，最大规模的游行，成千上万的人走上街头。他们当中许多人非常的年轻——他们甚至没经历过英殖时代。他们对北京治港的强硬手段感到不满。在示威一事上，这些年轻人展现了无比的勇气。自从2014年的“雨伞运动”后，共产党已经明确表示，不容忍有任何的不服从——然而在三天后，示威者们勇敢地面对橡胶子弹、催泪弹以及司法惩罚，只是为了表达他们的立场。.所有这一切，正如许多香港人看到的那样，这座城市的未来岌岌可危。
+
+
 On the face of it, the protests were about something narrow and technical (see article). Under the law, a Hong Kong resident who allegedly murdered his girlfriend in Taiwan last year cannot be sent back there for trial. Hong Kong‘s government has therefore proposed to allow the extradition of suspects to Taiwan—and to any country with which there is no extradition agreement, including the Chinese mainland.
 
 
