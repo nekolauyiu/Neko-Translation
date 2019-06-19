@@ -2,10 +2,14 @@ The Economist – Homepage
 
 People v power
 
+人民与权力的对抗
+
 The rule of law in Hong Kong
 
-Huge demonstrations have rattled the territory‘s government—and the leadership in Beijing
+香港的法治
 
+Huge demonstrations have rattled the territory‘s government—and the leadership in Beijing
+大规模游行示威令本港政府及北京领导层感到惊恐
 
 Jun 13th 2019 edition
 
@@ -29,7 +33,7 @@ In its narrowest sense, the new law will not accomplish what she wants. Taiwan h
 
 The rest of the world can encourage her. Britain, which signed a treaty guaranteeing that Hong Kong‘s way of life will remain unchanged until at least 2047, has a particular duty. Its government has expressed concern about the “potential effects” of the new law, but it should say loud and clear that it is wrong. With America, caught up in a trade war with China, there is a risk that Hong Kong becomes the focus of a great-power clash. Some American politicians have warned that the law could jeopardise the special status the United States affords the territory. They should be prudent. Cutting off Hong Kong would not only harm American interests in the territory but also wreck the prospects of Hong Kongers—an odd way to reward its would-be democrats. Better to press the central government, or threaten case-by-case scrutiny of American extraditions to Hong Kong.
 
-But would this have any effect? That is a hard question, because it depends on Mr Xi. China has paid dearly for its attempts to squeeze Hong Kong. Each time the world sees how its intransigence and thuggishness is at odds with the image of harmony it wants to project. When Hong Kong passed into Chinese rule 22 years ago, the idea was that the two systems would grow together. As the protesters have made clear, that is not going to plan. ◼
+But would this have any effect? That is a hard question, because it depends on Mr Xi. China has paid dearly for its attempts to squeeze Hong Kong. Each time the world sees how its intransigence and thuggishness is at odds with the image of harmony it wants to project. When Hong Kong passed into Chinese rule 22 years ago, the idea was that the two systems would grow together. As the protesters have made clear, that is not going to plan. 
 
 This article appeared in the Leaders section of the print edition under the headline “The rule of law in Hong Kong”
 
