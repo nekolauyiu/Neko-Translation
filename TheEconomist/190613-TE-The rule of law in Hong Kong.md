@@ -21,6 +21,7 @@ Three things stand out about the protesters who rocked Hong Kong this week. Ther
 
 On the face of it, the protests were about something narrow and technical (see article). Under the law, a Hong Kong resident who allegedly murdered his girlfriend in Taiwan last year cannot be sent back there for trial. Hong Kong‘s government has therefore proposed to allow the extradition of suspects to Taiwan—and to any country with which there is no extradition agreement, including the Chinese mainland.
 
+乍看起来，示威是由于一些法律的技术问题，一名香港人被控去年在台湾谋杀了其女友，而不能被送返台湾受审。香港政府因此提出了允许将嫌疑犯引渡到台湾议案——以及引渡到其它没有引渡协议的国家，包括中国大陆。
 
 However, the implications could not be more profound. The colonial-era drafters of Hong Kong‘s current law excluded the mainland from extradition because its courts could not be trusted to deliver impartial justice. With the threat of extradition, anyone in Hong Kong becomes subject to the vagaries of the Chinese legal system, in which the rule of law ranks below the rule of the party. Dissidents taking on Beijing may be sent to face harsh treatment in the Chinese courts. Businesspeople risk a well-connected Chinese competitor finding a way to drag them into an easily manipulated jurisdiction.
 
