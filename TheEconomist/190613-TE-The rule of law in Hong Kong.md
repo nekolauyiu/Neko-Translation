@@ -43,7 +43,11 @@ The Hong Kong government says the new law has safeguards. But the protesters are
 
 It is a perilous moment. The protests have turned violent—possibly more violent than any since the anti-colonial demonstrations in 1967. Officials in Beijing have condemned them as a foreign plot. Ms Lam has been digging in her heels. But it is not too late for her to think again.
 
+这是个危急的时刻。示威比1967年的反殖民游行更加暴力。北京官员将之谴责为外国的阴谋。林郑的处境变得寸步难行。但是对于她来说，思考这一切已经太晚了。
+
 In its narrowest sense, the new law will not accomplish what she wants. Taiwan has said that it will not accept the suspect‘s extradition under the new law. Less explosive solutions have been suggested, including letting Hong Kong’s courts try cases involving murder committed elsewhere. Anti-subversion legislation was left to languish after protests in 2003. There is talk that the government may see this as the moment to push through that long-shelved law. Instead Ms Lam should take it as a precedent for her extradition reform.
+
+狭义上来说，新法例并不能如她所想。台湾已经表态不会接受新法案中的疑犯遣返条例。
 
 The rest of the world can encourage her. Britain, which signed a treaty guaranteeing that Hong Kong‘s way of life will remain unchanged until at least 2047, has a particular duty. Its government has expressed concern about the “potential effects” of the new law, but it should say loud and clear that it is wrong. With America, caught up in a trade war with China, there is a risk that Hong Kong becomes the focus of a great-power clash. Some American politicians have warned that the law could jeopardise the special status the United States affords the territory. They should be prudent. Cutting off Hong Kong would not only harm American interests in the territory but also wreck the prospects of Hong Kongers—an odd way to reward its would-be democrats. Better to press the central government, or threaten case-by-case scrutiny of American extraditions to Hong Kong.
 
