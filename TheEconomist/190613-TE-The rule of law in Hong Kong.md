@@ -47,11 +47,15 @@ It is a perilous moment. The protests have turned violent—possibly more violen
 
 In its narrowest sense, the new law will not accomplish what she wants. Taiwan has said that it will not accept the suspect‘s extradition under the new law. Less explosive solutions have been suggested, including letting Hong Kong’s courts try cases involving murder committed elsewhere. Anti-subversion legislation was left to languish after protests in 2003. There is talk that the government may see this as the moment to push through that long-shelved law. Instead Ms Lam should take it as a precedent for her extradition reform.
 
-狭义上来说，新法例并不能如她所想。台湾已经表态不会接受新法案中的疑犯遣返条例。
+狭义上来说，新法例并不能如她所想。台湾已经表态不会接受新法案中的疑犯遣返条例。有人提出一些难以实施的提议，包括香港法院审理其它地方发生的谋杀案。2003年反颠覆法在示威行动后搁置。据称，政府可能视此作为推动长期搁置法案的一个机会。相反，林郑将其引渡条例作为一个在香港从未实行过的先例来进行提议。
 
 The rest of the world can encourage her. Britain, which signed a treaty guaranteeing that Hong Kong‘s way of life will remain unchanged until at least 2047, has a particular duty. Its government has expressed concern about the “potential effects” of the new law, but it should say loud and clear that it is wrong. With America, caught up in a trade war with China, there is a risk that Hong Kong becomes the focus of a great-power clash. Some American politicians have warned that the law could jeopardise the special status the United States affords the territory. They should be prudent. Cutting off Hong Kong would not only harm American interests in the territory but also wreck the prospects of Hong Kongers—an odd way to reward its would-be democrats. Better to press the central government, or threaten case-by-case scrutiny of American extraditions to Hong Kong.
 
+世界各地都支持香港。英国有特殊的责任，这个国家签署了一份保障条约，至少到2047年前保持香港生活方式不变。政府对新法案的“潜在影响”表示忧虑，但英国应该明确响亮地表示这是错误的法案。此时美国与中国开展贸易战，香港也有可能承受两国博弈的风险。一些美国政治家已经警告这个法案可能给美国给予该地区的特殊地位带来危害。美国应该谨慎行事。切断给予香港的特殊地位不仅危害美国在该地区的利益，而且还破坏香港人的前途——这是另一种鼓励成为民主地区的方式。最好向中央政府施压，或向其威胁要对美国引渡到香港的个案进行逐一审查。
+
 But would this have any effect? That is a hard question, because it depends on Mr Xi. China has paid dearly for its attempts to squeeze Hong Kong. Each time the world sees how its intransigence and thuggishness is at odds with the image of harmony it wants to project. When Hong Kong passed into Chinese rule 22 years ago, the idea was that the two systems would grow together. As the protesters have made clear, that is not going to plan. 
+
+但这一切是否有效？这个问题难以回答，因为这一切处决于习近平。中国为管制香港付出了沉重的代价。每一次世界都能看到这种不妥协和暴力行为与中国想表现出香港和谐的一面格格不入。当香港在过去由中国统治的22年间，是打算实现两种国家制度能共存的构想。正如示威者用行为清晰表达出来的那样，这一切都是不可能的。
 
 This article appeared in the Leaders section of the print edition under the headline “The rule of law in Hong Kong”
 
